@@ -6,5 +6,5 @@ Public Domain Works of Pierre Marie Sébastien Bigot de Morogues (1776 - 1840)
 
 English - Plain Text  
 English - PDF  
-[French - Plain Text](/full-text-french.md)  
+[French - Plain Text](memoire-historique-et-physique-sur-les-chutes/full-text-french.md)  
 French - PDF
