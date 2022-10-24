@@ -12,3 +12,10 @@
 
 ### 1812.
 
+---
+
+# Avis au Lecteur.
+
+Lorsque j'entrepris cet ouvrage, je n'avois d'autre but que celui de comparer entr'elles les circonstances qui ont 
+
+...
