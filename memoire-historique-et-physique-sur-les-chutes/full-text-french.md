@@ -18,7 +18,7 @@
 
 # [Observations Préliminaires.](#observations-préliminaires-1)
 
-# [Première Section.](#premiere-section-1)
+# [Première Section.](#première-section-1)
 
 ---
 
