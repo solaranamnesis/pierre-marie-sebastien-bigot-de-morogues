@@ -24,8 +24,6 @@ Je n'ai point osé, à l'exemple de plusieurs auteurs, me permettre de donner un
 
 Nous mêmes dans ces derniers temps, nous refusant à l'évidence et aux témoignages de toutes les nations, nous rangeâmes les chûtes de pierres au nombre des préjugés populaires les plus absurdes : ne blâmons donc point les auteurs de théories savantes dont le calcul démontre la possibilité ; mais laissons dans l'oubli ces systèmes éphémères trop ordinairement le fruit de connoissances superficielles.
 
-...
-
 # Observations Préliminaires.
 
 ...
