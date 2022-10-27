@@ -1,4 +1,4 @@
-# Memoire Historique et Physique sur les Chutes des Pierres Tombees sur la Surface de la Terre a Diverses Epoques.
+# Mémoire Historique et Physique sur les Chutes des Pierres Tombées sur la Surface de la Terre a Diverses Époques.
 
 English - Plain Text  
 English - PDF  
