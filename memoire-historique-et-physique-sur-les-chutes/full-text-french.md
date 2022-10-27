@@ -34,6 +34,14 @@ Nous mêmes dans ces derniers temps, nous refusant à l'évidence et aux témoig
 
 # Observations Préliminaires.
 
+Le phénomène de la chûte des pierres, si récemment révoqué en doute par les meilleurs auteurs, et maintenant admis par tous les savants comme incontestable, étoit connu dès la plus haute antiquité.
+
+Les historiens chinois, ceux de la Grèce et de Rome nous l'ont attesté comme irrévocable ; ceux même du moyen âge nous ont transmis les relations d'un grand nombre de faits de ce genre ; mais dans les siècles derniers, la difficulté insurmontable de les expliquer, ou même de les mettre en rapport avec les autres faits connus, les fit regarder comme faux par la plupart des savants, qui, à cette époque, trouvèrent dans leur incrédulité l'excuse de leur ignorance. Bientôt les gens du monde et le peuple lui-même rangèrent au nombre des fables un des phénomènes les plus cestains, dont la vérité étoit attestée par une multitude de témoignages irrécusables, chacun croyant alors, par ses doutes inconsidérés, faire preuve de la science qu'il n'avoit point, et d'une prétendue force d'esprit, masque trop ordinaire de l'incertitude et de la foiblesse.
+
+On peut cependant dire en faveur des modernes, qu'une des causes qui rendent excusable leur incrédulité sur la chûte des pierres, est que ce phénomène rapporté par les anciens, se trouve ordinairement confondu par eux avec une foule de circonstances qui le rendent encore plus merveilleux; et que la superstition ou un zèle religieux se mêlèrent souvent à leurs écrits, ou parurent influer sur les traditions des peuples, qui regardèrent quelques-unes des masses tdmbées de l'atmosphère comme des objets divins.
+
+...
+
 # Première Section.
 
 ...
