@@ -8,7 +8,7 @@
 
 ### Imprimerie de Jacob Ainé.
 
-### rue Bourgogne, n° 6.
+### rue Bourgogne, n ° 6.
 
 ### 1812.
 
