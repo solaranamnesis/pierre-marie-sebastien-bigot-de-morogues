@@ -14,6 +14,14 @@
 
 ---
 
+# [Avis au Lecteur.](#avis-au-lecteur-1)
+
+# [Observations Préliminaires.](#observations-preliminaires-1)
+
+# [Première Section.](#premiere-section-1)
+
+---
+
 # Avis au Lecteur.
 
 Lorsque j'entrepris cet ouvrage, je n'avois d'autre but que celui de comparer entr’elles les circonstances qui ont accompagné les chûtes de pierres, afin de pouvoir déterminer celles qui semblent essentielles à ces sortes de phénomènes, et de les distinguer de celles qui n'ont pas constamment eu lieu; ce qui selon moi étoit la seule méthode qui pût permettre d'essayer de connoître la cause de ces évènements aussi remarquables que communs.
@@ -25,5 +33,7 @@ Je n'ai point osé, à l'exemple de plusieurs auteurs, me permettre de donner un
 Nous mêmes dans ces derniers temps, nous refusant à l'évidence et aux témoignages de toutes les nations, nous rangeâmes les chûtes de pierres au nombre des préjugés populaires les plus absurdes : ne blâmons donc point les auteurs de théories savantes dont le calcul démontre la possibilité ; mais laissons dans l'oubli ces systèmes éphémères trop ordinairement le fruit de connoissances superficielles.
 
 # Observations Préliminaires.
+
+# Première Section.
 
 ...
