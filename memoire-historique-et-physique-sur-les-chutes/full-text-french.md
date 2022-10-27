@@ -16,7 +16,7 @@
 
 # [Avis au Lecteur.](#avis-au-lecteur-1)
 
-# [Observations Préliminaires.](#observations-preliminaires-1)
+# [Observations Préliminaires.](#observations-préliminaires-1)
 
 # [Première Section.](#premiere-section-1)
 
