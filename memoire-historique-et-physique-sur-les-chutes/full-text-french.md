@@ -118,4 +118,38 @@ Et 50 de faire remarquer à combien d'erreurs la chûte des pierres a donné lie
 
 # Première Section.
 
+De toutes les pluies de pierres, la plus mémorable et la plus anciennement constatée, est sans contredit celle dont Dieu se servit pour détruire l'armée des cinq rois chananéens, que Josué venoit de mettre en fuite près de Gabaon, l'an 1451 avant notre ére. Voici ce qui est rapporté à ce sujet au verset 11, chapitre 10 du livre de Josué :
+
+« Lorsqu'ils fuyoient, le Seigneur fit tomber du ciel de grosses pierres sur eux jusqu'à Azeca, et cette grêle de pierres qui tomba sur eux, en tua beaucoup plus que les enfants d'Israel n'en avoit passé au fil de l'épée. »
+
+Ce fait miraculeux, au moins par ses effets, par le lieu, et le moment, semble à dom Calmet être le même déguisé, dans la fable qui rapporte qu'Hercule faisant la guerre aux fils de Neptune, obtint de Jupiter une pluie de cailloux, qui écrasa ses redoutables ennemis.
+
+Je le cite ici, étant parfaitement convaincu que ceux même qui se croiroient en droit de récuser une autorité aussi respectable que celle des livres saints, seront toujours obligés d'admettre que le phénomène de la chûte des pierres étoit connu dès la plus haute antiquité, et dans le temps où le livre de Josué fut écrit. Ils admettront même comme probable, que vers cette époque une chûte considérable de pierres eut lieu dans un pays voisin de la Judée, et frappa singulièrement l'imagination des peuples de l'Asie, puisque les Hébreux et les peuples voisins en conservèrent simultanément la mémoire dans leurs traditions et dans leurs écrits.
+
+Attendons quelques temps encore, et peut-être que beaucoup de faits consignés dans les ouvrages des anciens, qui naguère nous paroissoient totalement miraculeux, ne nous paroitront plus aussi complètement contraires aux lois de la nature.
+
+On doit mettre au nombre des pierres tombées, dont il est fait mention dans l'histoire sous les dates les plus anciennes, sans pouvoir en assigner l'époque d'une manière précise, la pierre adorée jadis, et désignée sous les noms d'Elagabale, chez les Phéniciens, et de Cybèle ou mère des dieux, chez les Phrygiens, et peut-être de Jupiter-Amon, dans la Lybie.
+
+On sait que ces dieux n'étoient originairement autre chose qu'une grosse pierre noire de forme pyramidale, que l'on croyoit tombée du ciel ; ne pouvoit-on pas présumer que la vue d'un phénomène aussi extraordinaire que la chûte d'une énorme masse de pierre, tombant toute embrasée avec un fracas épouvantable, en aura pu imposer assez aux peuples grossiers et superstitieux de l'ancienne Phrygie, pour leur faire adorer cette masse brute comme un dieu.
+
+Ce culte étoit très-ancien, car les Egyptiens eux-mêmes, dès l'an 660 avant J.-C., sous le règne de Psammeticus, avoient reconnu la haute antiquité des Phrygiens, et personne n'ignore que dans les temps très-reculés les hommes étoient enclins aux superstitions les plus grossières. Leur histoire, dans ces premières époques, se trouve enfouie dans une multitude de circonstances mensongères, elle est pour nous un problême presque insoluble, et ce n'est qu'en tâtonnant, que l'on parvient à rencontrer quelques rapprochements heureux, susceptibles d'y jetter quelques foibles rayons de lumière. Il nous paroît donc probable que les Phrygiens et les Phéniciens adorèrent simultanément une masse de pierre qu'ils virent tomber du ciel ; l'intérêt politique qui tendoit à réunir les hommes encore errants, dut singulièrement favoriser leur croyance, et les prêtres de leurs dieux ne laissèrent point échapper cette occasion d'augmenter leur pouvoir.
+
+Bientôt le culte de la divinité envoyée du ciel, se répandit de proche en proche, les mystères et les cérémonies qui y furent annexés, accrurent le nombre de ses partisans, la vénération croissant d'âge en âge, le rendit de plus en plus respectable, et les dieux de la Phrygie, de l'Egypte, de la Phénicie, et de la Grèce, utiles partout aux besoins de la politique, devinrent par la suite ceux de Rome et de presque tout l'univers ; c'est ainsi que la mère des dieux, transportée avec pompe, exigea partout des miracles pour soutenir ses autels, et qu'enfin les Romains crédules admirèrent l'impure Claudia, faisant entrer dans leur port le vaisseau chargé de leur nouvelle divinité, qui en lui rendant l'honneur, devoit à la fois faire et sa fortune et celle des prêtres qui l'avoient corrompue.
+
+Cette masse tombée du ciel à Pessinunte, dans la Phrygie, étoit adorée sous les noms d'Ida et de mère des dieux, lorsque les Romains envoyèrent des députés à Attale 1er, roi de Pergame, pour la lui demander. Publius-Scipion Nasica, connu par sa vertu, fut choisi par le sénat, quoique fort jeune, pour aller la recevoir, et le culte de cette divinité grotesque s'établit dans Rome, l'an 204 avant J.-C.
+
+Le savant Biot lut un mémoire sur ce sujet à la société philomatique en juillet 1791. Et maintenant il est parfaitement recounu que la mère des dieux était une véritable bœtylie ; mais le temps de sa chûte ne peut être fixé d'une manière certaine, quoique l'on sache parfaitement qu'elle eut lieu à une époque très-reculée, et de beaucoup antérieure à celle de la chûte de la pierre tombée proche le fleuve Ægos-Potamos.
+
+Au rapport d'Arnobe, cette pierre étoit d'un volume médiocre, de couleur noire, et de substance anguleuse et métallique ; un oracle avoit annoncé aux Romains que la prospérité de l'empire iroit toujours croissante, s'ils parvenoient à se procurer ce précieux dépôt ; et le sénat intéressé au maintien de la superstition, se servit de ce moyen pour la ranimer.
+
+C'étoit aussi un semblable motif qui faisoit conserver, près du temple de Delphes, une autre pierre du même genre, qui, d'après Pausanias, passoit pour avoir été rejetée par Saturne, et être tombée dans la Grèce ; ainsi la politique habile savoit profiter alors des phénomènes extraordinaires pour créer des miracles, et attacher à son sol, par la superstition, un peuple encore grossier et à demi-barbare.
+
+Tite-Live rapporte, dans le § 31 du livre 1er de ses décades, la chûte de pierres dont l'époque est la plus anciennement constatée dans l'histoire profane, il nous apprend que la guerre des Sabins étant glorieusement terminée (environ 654 ans avant J.-C.), on vint annoncer au roi et au sénat qu'il étoit tombé une pluie de pierres sur le mont Albanus. Comme on avoit peine à croire une pareille chose, on envoya sur les lieux, pour s'en assurer, et ceux qui s'y portèrent virent effectivement tomber du ciel des pierres aussi pressées que la grêle, lorsque les vents la chassent sur la terre. Les Romains, en expiation de ce prodige, qu'ils regardoient comme d'un sinistre présage, ordonnèrent des sacrifices solennels pendant neuf jours, usage qui se perpétua toutes les fois qu'on vit arriver le même évènement.
+
+Non-seulement ce phénomène fut regardé comme un prodige véritable par le peuple superstitieux de Rome, mais les philosophes eux-mêmes, et l'incrédule Cicéron en particulier, l'ont rapporté comme étant convaincus de sa réalité.
+
+Le savant dom Calmet, qui s'est occupé de rassembler à ce sujet les citations des anciens, rapporte que quelques temps après la bataille de Cannes (216 ans avant J.-C.), on vit sur la même montagne d'Albe, une pluie de pierres qui dura deux jours de suite.
+
+La même chose s'est fait remarquer à divers endroits, par exemple, à Aricia, à Capoue, à Rome, à Lavinium, à Amiternes, et dans la marche d'Ancone ; quelquefois c'étoit de simples pierres qui tomboient, d'autres fois des pierres enflammées, et quelquefois de la terre.
+
 ...
