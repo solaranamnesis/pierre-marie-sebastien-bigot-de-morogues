@@ -170,4 +170,22 @@ D'après le rapport des anciens auteurs, cette chûte fut précédée, pendant s
 
 Pline nous apprend encore qu'il étoit tombé une autre pierre à Cassandrie, ville de Macédoine, où sa présence regardée comme d'un favorable augure, attira une puissante colonie. Cette ville, située dans l'isthme qui joignoit Pallène à la Macédoine, portoit originairement le nom de Potydée, qui signifie en grec _être brûlée_, probablement à cause de la couleur brûlée et enfumée de la pierre dont la politique se servit pour y fixer des habitants. On doit donc croire que cette pierre étoit très-anciennement tombée, et qu'elle étoit encore conservée dans l'ancienne Potydée, lorsque le roi Cassandre, ayant rebâti cette ville vers l'an 315 avant notre ère, lui imposa son propre nom.
 
+Une autre pierre tombée du ciel étoit aussi conservée dans le gymnase d'Abydos, ville de l'Asie mineure, sur le bosphore de Thrace ; Pline, qui rapporte qu'elle y avoit été reçue précieusement, ne nous dit point quand elle tomba, et n'indique pas le lieu de sa chûte ; on peut cependant présumer que ce fut postérieurement au sixième siècle avant J.-C., car la ville d'Abydos avoit été brûlée par Darius, 508 ans avant notre ère, lorsque ce roi vaincu par les Scythes et fuyant dans ses états, craignit d'être poursuivi par ce peuple belliqueux ; d'où nous pouvons conclure que la pierre dont parle Pline, avoit été apportée dans le gymnase de la ville qui fut reconstruite sur les ruines de l'ancienne Abydos, postérieurement à son rétablissement.
+
+Valère-Maxime, livre 1, chapitre 6, rapporte que, sous le consulat de C. Volumnius et Ser. Sulpitius, on fut témoin de divers prodiges, entr'autres d'une pluie de pierres ; comme il ne dit relativement à cet évènement, que, _in Piæno lapides pluisse_, je ne le cite ici que pour n'omettre aucun des faits parvenus à ma connoissance. Je remarquerai seulement, que dans les fastes consulaires, on trouve que l'an de Rome 293, qui correspond à l'an 461 avant J.-C, P. Volumnius-Amintinus-Gallus et Cer. Sulpitius-Camerinus étoient consuls ; c'est donc à cette époque qu'il me paroît convenable de placer les prodiges que Valère-Maxime a dit être arrivés dans le temps de ce consulat, et en particulier cette pluie de pierres, sur laquelle je n'ai trouvé aucun autre renseignement, sinon qu'elle eut lieu, vers cette époque, dans la marche d'Ancône.
+
+Julius-Obsequens rapporte que sous le consulat de Caïus-Martius 3 et Titus-Manlius-Torquatus (l'an 410 de Rome, ou 343 ans avant J.-C.), il tomba une pluie de pierres si considérable, que le ciel en fut obscurci, et qu'elle cacha la lumière aux habitants de la ville Rome.
+
+De Guignes, qui a compulsé les ouvrages des anciens auteurs chinois, nous apprend dans son voyage, que l'an 211 avant notre ère, sous le règne de Chy-Hoang-Ty, une étoile tomba jusqu'à terre, et se convertit en pierre ; ce qui me semble démontrer que cette chûte fut accompagnée de lumière.
+
+Quoi qu'il en soit, ce phénomène frappa singulièrement les contemporains, car les habitants du lieu, voulant en profiter pour donner une leçon à l'empereur, firent graver ces paroles sur la pierre : « Chy-Hoang-Ty est prêt de mourir, et son empire sera divisé ; » ce qui l'irrita tellement qu'il fit massacrer tous les habitants des environs de l'endroit où se trouva la pierre, et la fit briser ensuite.
+
+Cette cruauté lui fut funeste, car il mourut à la septième lune de l'année d'après ; et sous le règne de Eul-Chy-Hoang-Ty qui lui succéda, l'empire se révolta, fut divisé en une multitude de royaumes ; et la dynastie des Tsin finit deux cent sept ans avant J.-C., et trois ans après la mort de Chy-Hoang-Ty.
+
+Le savant voyageur, de l'ouvrage duquel j'ai extrait ces détails, rapporte que cent quatre-vingt-douze ans avant J.-C., il tomba une autre pierre dans le même empire.
+
+Il rapporte encore que quatre-vingt-neuf ans avant J.-C., à la deuxième lune, au jour Ting-Yeou, trente-quatrième du cycle, il tomba deux pierres à Yong, et que cette chûte fut accompagnée d'un tel bruit, qu'elle fut entendue jusqu'à quatre cents ly (quarante lieues) de distance ; le temps étoit, dans ce moment, calme et sans aucun nuage apparent.
+
+Pline, que malgré notre incrédulité nous consulterons toujours avec fruit, rapporte qu'il tomba en Lucanie une pluie de fer spongieux. Cet auteur ne fait mention ni d'aucun globe de feu, ni d'aucun autre météore apparu dans cette circonstance, il dit seulement qu'elle eut lieu l'année d'avant la défaite de Crassus par les Parthes, qui, d'après J. Blair, arriva l'an 52 avant J.-C.
+
 ...
