@@ -20,6 +20,8 @@
 
 # [Première Section.](#première-section-1)
 
+# [Deuxième Section.](#deuxième-section-1)
+
 ---
 
 # Avis au Lecteur.
@@ -241,5 +243,45 @@ Abou-Ali-Houssain Ben-Abdallah, philosophe et médecin arabe, plus connu sous le
 « D'après les ordres de ce prince, on essaya d'en forger une épée, mais on ne put jamais y parvenir. Suivant ce que l'on m'a raconté, ajoute Avicenne, cette masse étoit composée de petits grains ronds, semblables à du millet, et unis les uns aux autres. »
 
 J'ai extrait ces derniers détails des mémoires sur l'Egypte par Quatremère. Ils m'ont paru d'autant plus curieux, que les caractères assignés par Avicenne à la pierre tombée dans le Djordjan, sont parfaitement convenables à plusieurs de celles de ces mêmes masses que nous avons vu tomber dans les derniers temps ; ce qui nous prouve la véracité de l'auteur arabe, contemporain de ces phénomènes, qui par conséquent arrivérent antérieurement à 1036, année dans laquelle mourut ce savant célèbre.
+
+En 998, il tomba deux grandes pierres, l'une dans la ville de Magdebourg, et l'autre dans un champ voisin, situé sur les bords de l'Elbe. Spangenberg, qui cite ce fait dans la Chronique saxonne, rapporte que ces pierres tombèrent pendant un orage.
+
+L'an 464 de l'hégire (correspondant à la fin de 1071 et au commencement de 1072), dit l'auteur du Mirat-Al-Zeman, il tomba dans l'Irak une pluie accompagnée de grêle et de boules de terre, qui ressembloient à des œufs de moineaux, et avoient une odeur agréable.
+
+Cette chûte, dont Quatremère a fait mention, ne me paroît nullement avérée, tant à cause des circonstances qu'il cite, que par la nature même des boules de terre, qui ne paroissent avoir aucun rapport avec les pierres tombées de l'atmosphère à cause de leur odeur agréable ; je l'indique cependant en raison de la difficulté de se procurer des détails sur les faits de ce genre aussi anciennement arrivés, et parce que d'ailleurs nos connoissances relatives à la chûte des pierres, sont encore trop peu avancées pour que nous puissions assurer connoître toutes les variétés des substances tombées sur la terre. Il me paroîtroit donc téméraire de rejeter absolument les faits de ce genre, que nous ne saurions encore assimiler à ceux que nous connoissons d'une manière positive.
+
+En 1136, à Oldisleben, en Thuringe, il tomba une pierre de la grandeur d'une tête humaine. (_Spangenberg, Chr. Sax._)
+
+En 1164, le jour de la fête de la Pentecôte, il tomba une pluie de fer en Misnie. (_Georg. Fabric. rer. Misn._)
+
+Ces derniers faits se trouvent cités par Chladni, et sont connus de tous les savants ; mais je ne sache point que dans les catalogues des chûtes de pierres, aucun auteur ait cité celle que rapporte Henri Sauval dans l'histoire des antiquités de Paris, où il dit, d'après Rigord, qu'en juin 1198, il fit une telle tempête à deux lieues de Paris, entre Chelles et Tremblai, que tout fut renversé, et que même il tomba des pierres, les unes grosses comme des noix, les autres comme des œufs, ou même davantage.
+
+On trouve aussi, dans la Chronique saxonne de Spangenberg, qu'en 1249 il tomba des pierres aux environs de Quedlimbourg, Battenstad, et Blankembourg, et qu'en 1304 il en tomba beaucoup d'autres à Friedberg, près la Saal.
+
+Quatremère, que j'ai déjà cité, rapporte encore, d'après Macrizy, que le premier jour du mois de Moharram, de l'année 723 de l'hégire (correspondant au 10 janvier 1323), à la suite d'une pluie et d'un vent violent, il tomba dans les provinces des Mortahiah et de Dakhahiah, une grêle, dont les grains pesoient plus de cinquante dirhems ; laquelle fut accompagnée de pierres, dont plusieurs pesoient de sept à trente rotls, qui détruisirent un grand nombre de bourgs, et tuèrent une multitude de bœufs et de moutons.
+
+On trouve dans les annales du Limousin, par le père Bonaventure de Saint-Amable (vol. 3, p. 607), qu'en 1305, le jour de Saint-Remi, au sol des Vandales, il tomba de la grêle dans laquelle il y avoit des pierres embrasées de feu, qui causèrent plusieurs incendies.
+
+La plupart des faits précédents ne sont indiqués que d'une manière vague, mais cependant rien ne porte à croire qu'ils doivent être rapportés à d'autres causes que les phénomènes analogues dont nous sommes journellement les témoins ; mais il n'en est pas de même du fait suivant.
+
+En 1438, il tomba des pierres spongieuses près de Roa, non loin de Burgos en Espagne. Proust cite à ce sujet, dans le Journal de physique, tome 60, la lettre écrite par Chibdadréal, dans laquelle ce fait mémorable est rapporté de la manière suivante :
+
+« Le roi dom Juan et sa cour, étant à chasser au bas de la côte du village de Roa, le soleil se cacha sous des nuages blancs, et l'on vit descendre de l'air des corps qui ressembloient à des pierres grises et noirâtres, d'un volume très-considérable... Après une heure que dura ce phénomène, le soleil reparut... Un champ, qui n'étoit pas éloigné d'une demi-lieue, étoit tellement couvert de pierres de toutes grandeurs, qu'on ne distinguoit pas le terrain. Le roi voulut s'y transporter, mais on l'en empêcha, et on lui rapporta quatre pierres d'une grandeur considérable ; les unes étoient rondes et du volume d'un mortier, d'autres comme des oreillers de lit, et comme des mesures de demi-fanégues ; mais ce qui causoit le plus d'étonnement, c'étoit leur excessive légèreté, puisque les plus grandes ne pesoient pas une demi-livre. Elles étoient si tendres, qu'elles ressembloient plus à de l'écume de mer condensée qu'à toute autre chose. On pouvoit s'en frapper le dedans des mains sans crainte d'y causer ni contusion, ni douleur, ni la moindre apparence, _etc._ »
+
+Il résulte évidemment de ce récit que les pierres tombées près de Roa étoient d'une nature différente de celles qui ont été examinées dans ces derniers temps ; il me semble même que leur chûte ne devroit pas trouver place dans ce catalogue, et je ne la rappelle ici que parce qu'il paroît que ces masses spongieuses sont tombées de l'atmosphère ; je n'ai fait en cela que suivre l'exemple du savant professeur Chladni : mais j'avoue que pour regarder ce phénomène comme parfaitement constaté, il me sembleroit important de pouvoir le rapprocher de quelques autres qui lui soient analogues.
+
+C'est ici que je vais terminer cette première section, qui sera toujours, pour la science, l'époque de l'incertitude. Une foule d'absurdités évidentes, ou de mensonges grossiers, ayant accompagné le récit des évènements qui s'y trouvent consignés ; il est difficile d'en induire aucune conséquence exacte qui puisse servir à déterminer la cause du phénomène dont nous nous occupons ici ; mais cependant nous pourrons en conclure plusieurs vérités importantes :
+
+1° Que le phénomème de la chûte des pierres a eu lieu très-souvent ;
+
+2° Qu'il a eu lieu dans tous les temps, et même dans les siècles les plus reculés dont les monuments historiques nous aient conservé le souvenir ;
+
+3° Qu'il a eu lieu dans tous les pays, et a été observé chez tous les peuples civilisés ;
+
+4° Qu'il a frappé d'autant plus les peuples qui en ont été les témoins, que l'intérêt et la politique surent en profiter ;
+
+5° Qu'enfin, embelli par la mauvaise foi ou par la superstition, il a été regardé comme un prodige par les auteurs qui n'en ont pas nié la réalité, jusqu'au milieu du quinzième siècle, temps auquel va commencer la seconde section de l'histoire de ce phénomène remarquable.
+
+# Deuxième Section.
 
 ...
