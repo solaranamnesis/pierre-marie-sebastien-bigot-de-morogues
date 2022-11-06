@@ -376,7 +376,7 @@ D'Gehan-Guir, empereur du Mogol, rapporte dans ses mémoires écrits en persan p
 
 *) Et non pas en 1652, ainsi que l'indique Chladni, qui a copié une faute d'impression qui se trouve également dans une note de M. de la Métrie, insérée dans le Journal de physique, sans faire la remarque que d'Gehan-Guir, mort en 1627, n'eût pu écrire un fait arrivé en 1652.
 
-*) A la distance d'environ cent milles de Lahor, ville de l'Inde, l'une des plus considérables de l'empire du Mogdl.
+*) A la distance d'environ cent milles de Lahor, ville de l'Inde, l'une des plus considérables de l'empire du Mogol.
 
 D'Gehan-Guir rapporte qu'il fit peser cette masse devant lui, et que son poids fut trouvé de cent soixante tolas (environ deux kilogrammes et demi). Il chargea un ouvrier habile d'en faire des armes ; ce qui ne put être exécuté sans addition de fer, parce que cette masse pure n'étoit pas malléable. Conformément à cet ordre, trois parties du fer de foudre furent mêlées à une de fer commun, et on en fabriqua deux sabres, un couteau, et un poignard, dont les lames étoient aussi élastiques et coupoient aussi bien que celles des meilleurs sabres, ainsi que le démontra Pessai que l'empereur en fit faire en sa présence.
 
