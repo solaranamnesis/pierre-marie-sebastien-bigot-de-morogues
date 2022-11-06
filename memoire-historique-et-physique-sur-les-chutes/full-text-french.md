@@ -388,4 +388,60 @@ J'observerai, relativement au cercle lumineux cité par Gassendi, qu'il paroît 
 
 Il seroit trop long de rapporter ici les détails relatifs à toutes les chûtes de pierres qui vers la fin de cette seconde section, ont été constatées par les historiens, je vais donc me contenter d'énoncer celles qui sont venues à ma connoissance, ainsi je dirai seulement ici que Francesco Carli rapporte que le 21 juin 1635, il tomba une grande pierre à Vago en Italie ; que Lucas (_Chron. Siles._) nous apprend que le 6 mars 1636, à six heures du matin, par un temps serein, il tomba une grande pierre entre Sagau et Dubrow, et que sa chûte fut accompagnée d'un grand bruit : cette pierre étoit revêtue d'une espèce de croûte, et ressembloit intérieurement à un minerai métallique ; elle étoit extrêmement friable, et paroissoit avoir subi l'action du feu. Cette fragilité la distingue des autres pierres de même origine, et est très-remarquable.
 
+On trouve, dans les Annales de Gilbert, qu'en 1647, il tomba des pierres dans le village de Stolzenau, en Westphalie.
+
+On trouve encore un fait analogue dans le n° 36 des Annales des voyages publiés par Malte-Brun ; dans la notice qu'il donne sur le voyage d'Olof-Ericson Wilmann, il rapporte que ce marin, après être entré au service de la Compagnie des Indes orientales en 1647, suivit l'ambassade hollandaise à la capitale du Japon, et revint en Sicile en 1654, et que, tandis qu'il étoit en mer, le navire qui le portoit voguant à pleines voiles, une boule qui pesoit huit livres, tomba sur le pont, et tua deux hommes de son équipage. Malte-Brun dont les profondes connoissances sont reconnues, remarque avec raison que depuis que la chûte des pierres a été constatée, on doit faire attention aux faits de ce genre, qui naguère nous eussent paru très-apocryphes.
+
+Arnold Sanguerd rapporte que le 6 août 1650, il tomba une pierre à Dordrecht. (Voy. Catalogue de Chladni.)
+
+Bartholin nous apprend que le 3 mars 1654, il tomba une pluie de pierres dans l'île de Fune ou Fionie, dépendance du Dannemarck, à l'entrée de la mer Baltique, entre les 55° et 56° de latitude nord.
+
+James Wallace (_Account of the islands of Orkney_, London 1700) rapporte que quelques années avant l'époque à laquelle il écrivoit, une pierre tomba sur un bâtiment de pêcheurs, à une demi-lieue de Copinsha, l'une des îles Orcades, par environ 59° de latitude nord.
+
+Je crois devoir faire remarquer que ce fait a beaucoup d'analogie avec celui rapporté par Olof-Ericson Wilmann. L'un et l'autre étant arrivés à des époques très-rapprochées, et les deux chûtes ayant eu lieu sur des bâtiments en mer, ne seroit-il donc pas possible que l'un des deux ait copié et dénaturé la relation de l'autre ? Et dans ce cas, James Wallace étant postérieur, pourroit seul être regardé comme copiste. Je ne donne cependant cette remarque que comme une simple présomption, d'après laquelle je ne me suis pas cru suffisamment autorisé à supprimer cette dernière citation qui peut être très-véridique.
+
+Chladni rapporte, d'après le père Ange de Saint-Joseph, qu'en 1667, il tomba des pierres à Schiras, en Perse. Il ajoute encore que cette relation est accompagnée de circonstances peu vraisemblables.
+
+Ce fait est tiré du _Gazophilacium linguâ Persarum_ du père Ange de Saint-Joseph, de Toulouse, missionnaire apostolique, et supérieur des missions orientales des Carmes-déchaussés, en 1662. Voici un extrait de la traduction de cet ouvrage, que je dois à la complaisance du savant Tonnellier, conservateur de la collection de la Direction des mines de l'empire :
+
+« En l'année 1667, la maison de madame Esnic-Han, à Schiras, fut maltraitée par le fléau de plusieurs pierres qui tombèrent continuellement pendant quatre jours. Elles étoient lancées dans plusieurs directions différentes par une force invisible ; quelques-unes étoient aussi grosses que la tête d'un homme ; et elles ne ressembloient à aucune de celles qui se rencontrent à trente lieues à la ronde. »
+
+Cette relation est accompagnée de plusieurs autres circonstances merveilleuses et invraisemblables, qui prouvent que ce fait a été au moins embelli, car elle indique que ces pierres en tombant ne firent aucun mal aux personnes qui se trouvèrent dessous, et que même les vases de terre sur lesquels elles tombèrent n'en furent point cassés.
+
+En 1672, Legallois fit imprimer un petit ouvrage sous le titre de Conversations tirées de l'Académie de l'abbé Bourdelot, contenant diverses recherches et observations physiques. On trouve dans cet ouvrage (ainsi que le remarque F. Butenschœn, dans le Moniteur du 2 nivôse an 11), une notice sur deux pierres tombées près de Vérone, dont l'une pesoit trois cents livres et l'autre deux cents livres. Ces pierres tombèrent dans la nuit, pendant le temps le plus doux et le plus serein ; elles paroissoient tout en feu et venoient d'en haut, mais de biais, et avec un bruit épouvantable.
+
+Trois ou quatre cents personnes, témoins de ce prodige, en furent singulièrement étonnées. Le bruit et la flamme ayant cessé après la chûte de ces pierres, on approcha de la fosse qu'elles avoient creusée, et on les porta à Vérone, où elles furent conservées dans l'Académie de cette ville, qui en envoya des morceaux dans plusieurs endroits. La même relation indique qug ces pierres étoient de couleur jaunâtre, fort aisées à pulvériser, et qu'elles sentoient le soufre.
+
+Depuis que le professeur Butenschœn a fixé l'attention des savants sur cette chûte de pierres remarquable, Laugier a examiné un fragment de l'une des pierres tombées à Vérone, dans lequel il a retrouvé les mêmes principes que dans les autres pierres de semblable origine ; mais ayant varié dans la méthode d'essai employée jusqu'à lui en pareilles circonstances, il a reconnu pour la première fois l'existence du chrôme dans ces sortes de pierres ; et bientôt appliquant le même mode d'analyse par les alcalis à plusieurs autres pierres tombées, il put en conclure que le chrôme en faisoit partie. Le mémoire dans lequel sont consignées ces observations, est inséré dans le tome 7 des Annales du Muséum d'histoire naturelle.
+
+Il s'est glissé plusieurs erreurs de dates dans les citations qui ont été faites de la chûte des pierres tombées à Vérone. De la Métherie, dans le tome 66 du Journal de physique, indique 1762, au lieu de 1672, et dans le tome 1er de la traduction du Dictionnaire de chimie de Klaproth, il est dit que cette chûte eut lieu en 1663.
+
+Scheuchzer rapporte que le 6 octobre 1674, il tomba deux grosses pierres dans le canton de Glarus, en Suisse.
+
+Balduinus, dans le _Miscell. nat. curios._, année 1697, nous apprend que le 28 mai 1677, il tomba beaucoup de pierres près d'Ermendorf, non loin de Grossenhayn, en Saxe. Chladni observe que, d'après l'analyse de cet auteur, on pourroit croire qu'elles contenoient du cuivre : métal qui n'a pas encore été rencontré dans les pierres atmosphériques.
+
+On trouve dans le Bulletin de la Société philomatique de mai 1810, que le 13 janvier 1697, il tomba près de Sienne, dans un endroit nommé Pentolina, des pierres semblables aux autres de même origine.
+
+Scheuchzer nous apprend encore qu'en 1698, il tomba avec un grand bruit une pierre noire, dans le canton de Berne, près du village de Waltring ; on déposa à cette occasion, dans la bibliothèque de Berne, une masse que Chladni ne croit pas la même.
+
+Tandis que Paul Lucas étoit à Larisse, en Thessalie, il tomba du ciel, au mois de janvier 1706, une pierre pesant environ soixante-douze livres ; elle sentoit le soufre et ressembloit au mâchefer. On la vit venir du côté du nord avec un sifflement aigu, et elle parut ensuite au centre d'un petit nuage qui se fendit avec un grand bruit au moment où la pierre tomba. Paul Lucas raconte ce fait dans son voyage, et depuis il a été cité par plusieurs autres auteurs, entr'autres par l'abbé Richard, dans le tome 8 de son Histoire de l'air et des météores.
+
+D'après Stepling (_de Pluviâ lapideâ_), il tomba une pluie de pierres près de Plescowitz, en Bohême. Ce fait est rapporté dans le tome 56 du Journal de physique, où il est dit d'après le docteur Rost, que le 22 juin 1723, à environ deux heures de l'après-midi, à plusieurs milles de Reischtadt, on vit un petit nuage, le ciel étant d'ailleurs serein, et qu'en même temps il tomba dans un endroit, après un éclat très-fort, vingt-cinq pierres, et huit dans un autre, tant grandes que petites, lesquelles, a-t-on remarqué, jetoient des étincelles. Leur couleur extérieure étoit noire, leur intérieur avoit l'aspect métallique, et une forte odeur de soufre. Chladni qui cite cette chûte, observe qu'elle eut lieu avec un grand bruit et qu'on ne remarqua aucun éclair.
+
+Je crois devoir joindre aux autres citations relatives à cette seconde section, une relation qui a été écrite par le père dom Halley, prieur des anciens Bénédictins de Lessay, près Coutances, à de Mairan, membre de l'Académie royale des sciences, qui l'a fait insérer dans les Mémoires de cette savante société, page 19 de la partie historique pour l'année 1731. L'abbé Richard l'a depuis insérée dans le tome 8 de son Histoire de l'air et des météores, et elle a été recopiée par Salgues, dans son Traité des erreurs et préjugés répandus dans la société.
+
+Cet auteur remarque à ce sujet, que ceux qui ont imaginé que les métaux pouvoient être réduits à l'état gazeux, se combiner avec le fluide atmosphérique, nager dans son étendue, et reprendre ensuite leur forme primitive par des circonstances qui nous sont inconnues, appuient leurs conjectures sur ce phénomène qui eut lieu les 3, 4, et 5 juin 1731, à Lessay, près Coutances.
+
+L'air étoit ébranlé par des coups de foudre extraordinaires, tout le ciel étoit en feu, depuis l'horizon jusqu'au zénith ; des traits enflammés se croisoient de toutes parts ; et il tomboit des gouttes de métal embrasé et fondu. Les bestiaux furent tués, plusieurs édifices réduits en cendres ; la terreur étoit générale. C'est le seul météore de ce genre qu'on ait observé et décrit.
+
+Ne seroit-ce donc pas une chûte de pierres semblable aux autres déjà citées, qui arrivée en 1731, dans une époque où tous les faits de ce genre étoient rejetés comme fabuleux, se seroit embellie de plusieurs circonstances extraordinaires et fausses, qui sont d'autant plus difficiles à dégager de la vérité, que les savants, à cette époque, dédaignoient d'approfondir ces phénomènes, et même évitoient de s'en occuper, imitant à cet égard l'incrédulité dont Aristote leur avoit donné l'exemple.
+
+Castillon publia en 1771, un ouvrage intitulé, des dernières Révolutions du globe, dans lequel il rapporte, page 126, que le 18 octobre 1738, à quatre heures et demie de l'après-midi, Dalman, ingénieur, voyageant dans le comté d'Avignon, et allant à Champfort, entendit tout à coup une explosion souterraine, dont le bruit égaloit celui que pourroient faire cent pièces de canon que l'on tireroit à la fois. La terre trembla sous les pas de Dalman, et les glands de quelques chênes qui étoient sur les bords du chemin, tombèrent avec rapidité.
+
+Durant ce phénomène, le ciel étoit très-serein. Deux minutes après, il tomba, dans le même endroit, une pluie de terre et de gravier, comme il en tombe lorsqu'une mine a joué ; cette secousse et cette pluie durèrent trois minutes. A Carpentras, l'alarme fut très-vive, mais tout le dommage se réduisit à quelques cheminées abattues. Dans la campagne des environs, la terre s'entr'ouvrit à plusieurs endroits, et les fentes étoient si profondes, que les perches des laboureurs ne pouvoient aller jusqu'au fond.
+
+Tel fut le récit de Dalman, qui me paroît devoir évidemment se rapporter à une chûte de pierres et non à un tremblement de terre, d'après les considérations suivantes :
+
+1° En 1738, époque à laquelle Dalman fut témoin du phénomène qu'il décrit, tous les gens instruits se piquoient de regarder la chûte des pierres comme absurde ; il n'est donc pas étonnant que Dalman prévenu par cette manière de voir, ait cherché une cause qui lui paroissoit naturelle, au phénomène dont il étoit le témoin ;
+
 ...
