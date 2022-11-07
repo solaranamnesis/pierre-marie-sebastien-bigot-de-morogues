@@ -22,6 +22,8 @@
 
 # [Deuxième Section.](#deuxième-section-1)
 
+# [Troisième Section.](#troisième-section-1)
+
 ---
 
 # Avis au Lecteur.
@@ -443,5 +445,91 @@ Durant ce phénomène, le ciel étoit très-serein. Deux minutes après, il tomb
 Tel fut le récit de Dalman, qui me paroît devoir évidemment se rapporter à une chûte de pierres et non à un tremblement de terre, d'après les considérations suivantes :
 
 1° En 1738, époque à laquelle Dalman fut témoin du phénomène qu'il décrit, tous les gens instruits se piquoient de regarder la chûte des pierres comme absurde ; il n'est donc pas étonnant que Dalman prévenu par cette manière de voir, ait cherché une cause qui lui paroissoit naturelle, au phénomène dont il étoit le témoin ;
+
+2° Il est constant qu'en 1738, aucun volcan n'étoit en activité auprès de Carpentras : et quand un tremblement de terre auroit réellement eu lieu à cette époque près de Carpentras, il n'auroit pas pu produire une pluie de graviers et de petites pierres semblables à celles que rejette une mine ; car il est bien vrai que souvent des cendres volcaniques ont été portées par le vent à une très-grande distance, mais ici ce sont des graviers semblables à ceux qu'enleveroit une mine, qui sont tombés d'en haut, sans que l'on ait su d'où ils venoient ;
+
+3° Une explosion très-violente peut avoir causé l'ébranlement qui effraya les habitants de Carpentras et que ressentit Dalman, mais si la secousse eût été forte, il en seroit résulté nécessairement des accidents plus fâcheux que la chûte de quelques cheminées ;
+
+4° La chûte de pierres et la prétendue secousse dont il est ici question, ayant eu lieu dans la partie méridionale de la France, immédiatement après la saison des plus grandes chaleurs, il n'est pas nécessaire de recourir à un tremblement de terre pour expliquer la formation de quelques crevasses dans un sol gras et argilleux, où la sécheresse suffit pour les occasionner ;
+
+5° Ce qui me paroît le plus certain dans ce phénomène, est donc que le 18 octobre 1738, il tomba dans les environs de Carpentras et de Champfort, une pluie de pierres peu volumineuses, mais en très-grand nombre, laquelle fut accompagnée d'une explosion tres-considérable, qui agita assez violemment l'atmosphère pour occasionner la chûte de quelques cheminées, et que le bruit frappa tellement l'esprit de quelques personnes, que cherchant à expliquer sa cause, elles eurent recours à un tremblement de terre, qui acquéroit d'autant plus de probabilité, que la commotion s'étoit fait ressentir très-vivement.
+
+Stepling que nous avons déjà cité, rapporte dans son ouvrage (_de Pluv. lapid._), qu'en 1743, il tomba des pierres en Bohême, près de Liboschitz.
+
+Le savant de Lalande rapporte dans les Etrennes historiques de la province de Bresse, pour l'année 1756, que l'on entendit un bruit considérable, le jour de Saint-Pierre de l'an 1750, dans la Basse-Normandie, et qu'il tomba à Nicorps, proche Coutances, une masse à peu près de la même nature que celle dont la chûte eut lieu à Liponas en 1753, mais beaucoup plus considérable ; ce qui prouve qu'elle pesoit plus de vingt livres, puisque cette dernière étoit de ce poids.
+
+Voici ce qui fut inséré à ce sujet dans le Mercure de janvier 1751, tel que Huard, prêtre, professeur de philosophie, résidant à Coutances, l'écrivit vers cette époque à un astronome de Paris :
+
+« Le dimanche 11 octobre 1750, sur le midi, plusieurs personnes, tant à la ville qu'à la campagne, ont entendu un bruit semblable à celui de trois coups de canon, tirés au loin ; le dernier coup a été suivi d'un bourdonnement qui a duré quelques minutes ; et à l'endroit où tomba la pierre, ce bruit fut suivi d'un éclat semblable à celui d'une branche d'arbre qu'on auroit rompue. »
+
+« On n'a rien vu de lumineux dans l'air ; quelques personnes des environs disent qu'elles ont vu seulement quelque chose de noir qui paroissoit comme un oiseau qui auroit volé du haut en bas avec une grande rapidité. »
+
+« Je n'ai point vu la pierre sur la place, parce qu'elle avoit été enlevée le jour précédent de celui auquel j'y suis allé ; mais on m'a assuré qu'elle étoit à peu près de la grosseur d'une bouteille de quatre pots, et qu'elle étoit encore chaude une heure après sa chüte ; en approchant on sentoit une forte odeur de soufre ou de poudre enflammée. On l'a trouvée cassée en plusieurs morceaux, dont le plus gros pesoit environ vingt livres. L'extérieur est noirâtre et très-dure, l'intérieur est grisâtre et mêlé de petits points brillants qui se séparent aisément. »
+
+« Le trou qu'elle a fait en terre n'étoit pas considérable, il avoit environ un pied de diamètre et un demi-pied de profondeur : elle ne pouvoit aller plus loin à cause du fond qui est une espèce de de gravier ou galet assez dur... Le bruit a été entendu de quinze lieues, à la même heure... J'ai remarqué que cette pierre n'est qu'un composé de sable et de parties de fer, car lorsqu'elle est réduite en poussière, on aperçoit, au microscope, comme autant de petits cristaux très-transparents, et les parties luisantes s'attachent toutes au couteau aimanté ; ce qui prouve que cette pierre est une véritable marcassite, ou matière minérale métallique. »
+
+« On dit qu'on a trouvé de pareils morceaux dans d'autres paroisses plus éloignées que celle de Nicorps, et situées à une demi-lieue d'ici... On m'a aussi dit qu'à six lieues d'ici, du côté de Saint-Lô, le bruit avoit été plus considérable qu'ailleurs. »
+
+Tel fut le récit du professeur Huard, qui ne croyoit point que cette pierre fut une pierre de tonnerre, ainsi que le disoit le peuple, et aima mieux supposer dans les environs une éruption en forme de volcan, opinion évidemment erronnée, quant à l'origine de la pierre ; mais on ne sauroit trop reconnoître l'exactitude de son récit, en le comparant avec ceux par lesquels on a constaté depuis de semblables phénomènes.
+
+La description qu'il nous donne de la pierre, nous confirme surtout la vérité du fait ; et on doit remarquer particulièrement qu'il insiste pour dire que cette chûte ne fut accompagnée d'aucune apparition lumnineuse : d'où nous croyons pouvoir conclure qu'elle eut lieu sans le concours d'aucun météore.
+
+Il est dit par Chladni, dans le Bulletin de la Société philomatique, tome 2, page 78, du nouveau Bulletin, et dans le n° 151 du Journal des mines, que le Mercure de janvier 1751, rapporte qu'il est tombé une pierre en Allemagne, près de Constance. Je crois devoir observer ici que cette assertion est fausse, et que s'il est réellement tombé une pierre près de Constance en 1751, ce fait n'est pas contenu dans le Mercure de janvier de cette année. Il me paroît donc probable que la chûte de pierres arrivée à Constance, est supposée et n'est qu'une erreur de citation, à laquelle la chûte arrivée près de Coutances, en 1750, a donné lieu : cette erreur manifeste me fait craindre que plusieurs des faits, que je cite sans détails d'après Chladni, soient inexactement rapportés ici.
+
+Je regarde encore comme très-probable que la pierre que Morand fils présenta à l'Académie des sciences en 1769, soit un fragment de celle tombée à Nicorps en 1750. Morand n'ayant point indiqué l'époque de la chûte, et ce fait se trouvant rapporté très-légèrement par l'historien de l'Académie, qui dit seulement que l'on croyoit que cette pierre étoit tombée dans les environs de Coutances, il en résulte une grande présomption en faveur de l'identité. Comme il n'est cependant pas très-certain qu'il ne soit pas tombé de pierre dans le Cotentin en 1768, et que d'ailleurs le savant Chladni a cité ce fait dans son Catalogue, je hasarderai aussi de l'indiquer comme ayant eu lieu à cette époque.
+
+En 1751, le 26 mai, à six heures après midi, il tomba de l'atmosphère, à Hraschina près d'Agram ou Zagrab, en Esclavonie, deux masses de fer, l'une de soixante-onze livres, l'autre de seize livres, sans mélange de matière pierreuse ; la plus grande de ces masses est conservée dans le cabinet impérial de Vienne, avec le procès-verbal du Consistoire d'Agram.
+
+Le célèbre Klaproth en a fait l'analyse, et a reconnu qu'elle étoit composée de 96,50 de fer métallique, et de 3,50 de nickel.
+
+On aperçut un globe de feu, dont la direction étoit vers l'est ; il fut vu par un grand nombre de témoins, qui entendirent un bruit semblable à celui de plusieurs chariots roulants, lequel paroissoit provenir de ce corps lumineux. Ce globe détona avec un grand bruit, en répandant une fumée noire, et se divisa en deux morceaux, dont le plus gros tomba dans un champ où il s'enterra en laissant dégager de la fumée, et l'autre dans une prairie, à quelque distance du premier. En examinant ces masses on reconnoît qu'elles sont formées de fer malléable ; leur surface est cellulaire comme une scorie, et semblable à celle de la masse de fer de Sibérie, excepté que leurs cavités sont plus grandes et ne sont pas remplies par la substance jaune à aspect vitreux qui se trouve dans les cavités de la masse de Sibérie. Elles diffèrent de la pierre tombée à Aischstat, en ce qu'elles ne contiennent point de parties sablonneuses comme cette dernière ; et qu'elles sont au contraire compactes, noires, solides, et ressemblent à du fer forgé.
+
+La grosse masse conservée dans le cabinet impérial de Vienne, a d'après Klaproth, la forme d'un triangle irrégulier ; son extérieur est couvert de trous, mais l'intérieur est très-compacte et dur comme du fer martelé ; elle est d'un blanc de zinc très-brillant, et elle est très-ductile.
+
+Ce morceau tomba le premier, et s'enterra avec une telle force que l'on crut que c'étoit un tremblement de terre ; il fit un trou de trois brasses de profondeur et d'une demi-aune de largeur, dont les parois sembloient avoir été brûlés. Après l'explosion on vit dans l'air une fumée noire.
+
+D'après Stepling et plusieurs autres auteurs, il tomba le 3 juillet 1753, une pluie de pierres, à Plaw, près le mont Tabor, dans le cercle de Bechin, en Bohême. Cette chûte eut lieu, dit-on, à la suite d'un météore lumineux, et le poids des pierres qui furent ramassées, varioit d'une livre à vingt-cinq livres. Le célèbre Howard, chimiste anglais, en ayant fait l'analyse, trouva qu'elles étoient composées de
+
+Silice|45,45  
+Magnésie|17,27  
+Oxide de fer|42,72  
+Oxide de nickel|2,72  
+Total|108,16
+
+L'augmentation de poids s'est trouvée de 8,16, provenant très-probablement de l'oxidation du fer et du nickel pendant l'analyse.
+
+Le savant minéralogiste Deborne qui avoit vu de ces pierres, les décrit parfaitement dans son _Lithophylacium_, où il dit qu'elles sont formées de fer attirable à l'aimant, en grains brillants empâtés dans une matière verdâtre. Il rapporte aussi qu'on en trouve des morceaux qui pèsent depuis une livre jusqu'à vingt, épars dans les environs de Plaw, près Tabor, dans le cercle de Bechin, en Bohême, et que ces pierres sont revêtues d'une écorce noire comme une scorie : il ajoute que les gens crédules disent qu'elles sont tombées du ciel, le 3 juin 1753, au milieu des coups de tonnerre.
+
+De Bournon a examiné une de ces pierres comparativement avec celles de Bénarès, et a reconnu que son grain étoit plus fin, quoiqu'elle renfermât la même substance grise, soit globuleuse ou en parcelles irrégulières, unie à du fer métallique ainsi qu'à une masse terreuse analogue ; mais elle en diffère, 1° en ce qu'on n'y voit point de pyrite ; 2° parce qu'elle contient jusqu'à un quart de son poids de fer attirable à l'aimant ; 3° parce que ces particules de fer s'étant oxidées à leur surface, en raison du long séjour que cette pierre a fait dans la terre, sa cassure présente beaucoup de petites taches brunes ; 4° enfin parce qu'elle jouit d'une ténacité et d'une compacité plus grandes, qui la rendent susceptible du poli, après lequel elle paroît comme parsemée d'une multitude de petites taches ferrugineuses.
+
+Ces pierres sont comme les autres de même origine, enveloppées d'une croûte noire : la grande quantité de fer qu'elles renferment les rend plus lourdes que les autres, en sorte que leur pesanteur spécifique est de 4,281.
+
+De Lalande rapporte dans les Etrennes historiques de la province de Bresse, pour l'année bissextile 1756, que dans le mois de septembre 1753, à environ une heure après midi, le temps étant fort chaud, très-serein, et même sans nuage, on entendit un grand bruit semblable à celui de deux ou trois coups de canon, qui dura peu d'instants, mais fut assez fort pour retentir à six lieues à la ronde.
+
+Ce fut aux environs de Pont-de-Vesle que le bruit fut le plus considérable ; on entendit même à Liponas, village à trois lieues de Pout-de-Vesle, et à quatre lieues de Bourg-en-Bresse, un sifflement semblable à celui d'une fusée, et le même soir, on y trouva ainsi qu'à Pin, village près de Pont-de-Vesle et à trois lieues de Liponas, deux masses noirâtres, d'une figure presque ronde, mais fort inégale, qui étoient tombées dans des terres labourées, où elles s'étoient enfoncées par leur propre poids, de la profondeur d'un demi-pied ; l'une des deux pesoit vingt livres. Elle fut cassée, et tous les curieux des environs en virent des fragments.
+
+La base de ce composé est une espèce de pierre grise réfractaire, renfermant quelques particules de fer, qui se trouvent répandues en grains, en filets, et en petites masses, dans la substance de la pierre, mais surtout dans ses fentes : ce fer a besoin d'être rougi pour être parfaitement attirable à l'aimant. Il paroît que ces pierres ont souffert un feu très-violent, qui en a fondu la surface ; ce qui a produit la noirceur extérieure qu'on y remarque. Il paroît aussi, d'après le rapport de quelques personnes, qu'on en a trouvé dans un troisième endroit. On pouvoit voir, à Dijon, une de ces pierres pesant onze livres et demie, dans le cabinet d'histoire naturelle de Varenne de Béost, secrétaire en chef des états de Bourgogne, et correspondant de l'Académie royale des sciences de Paris. Cette même chûte de pierres est rapportée dans le tome 2 du Journal de physique.
+
+Au milieu de juillet de l'année 1766, il tomba une pierre à Alboreto, près de Modène, ainsi que ce fait a été constaté par plusieurs auteurs dignes de foi. (Voyez _Troili Regionamento della caduta di un sasso_, et _Vassali Lettere fisico-météorologiche_.)
+
+On vit, disent-ils, tomber auprès de Modène, par un temps très-serein, une très-grosse pierre, dont la chûte eut lieu avec un grand bruit, qu'on entendit dans les environs. Cette pierre fut trouvée encore chaude, enfoncée d'environ deux pieds dans la terre : elle étoit d'une nature graveleuse, et sa surface étoit irrégulière, obscure, et comme brûlée par le feu.
+
+Chladni qui cite la chûte d'une autre pierre tombée près la Novellara, le 15 août 1766, observe qu'elle peut être considérée comme provenant du même météore que celle tombée à Modène, si l'on suppose que l'on n'ait pas remarqué exactement le jour et le mois de la chûte : assertion d'autant plus probable que la Novellara est peu éloignée de Modène.
+
+Je crois devoir faire observer en terminant cette section,
+
+1° Que le phénomène dont je me suis occupé dans ce mémoire, a été extrêmement commun, puisque dans moins de trois siècles, il a été observé et constaté plus de quarante-deux fois différentes, et que très-certainement toutes les observations consignées dans les ouvrages d'une multitude d'auteurs, ne sont pas venues à ma connoissance, et que d'ailleurs il est également évident que le souvenir de la plupart des chûtes de pierres, n'a pas été conservé dans l'histoire ;
+
+2° Que les faits les plus importants consignés dans les divers rapports que nous venons de citer, sont parfaitement d'accord avec les observations faites par les modernes en pareilles circonstances ;
+
+3° Que plusieurs des pierres dont j'ai cité les chûtes, ont été conservées précieusement, et existent encore dans diverses collections ;
+
+4° Que ces pierres sont parfaitement analogues à celles que nous reconnoissons comme tombées dans ces derniers temps ;
+
+5° Combien il est difficile de faire admettre comme vrai ce qui est inexplicable ou inexpliqué, puisque dans la fin de cette seconde section, presqu'aucun de ceux qui ambitionnoient le titre honorable de savant, n'eût osé avouer qu'il regardoit la chûte des pierres comme véritable ou même comme possible ;
+
+6° Enfin combien il est avantageux de conserver dans les collections, toutes les substances inconnues, même lorsqu'elles nous paroissent les plus indifférentes, ou que nous croyons que le préjugé seul leur a pu donner quelque valeur. Mais dans ce cas, il importe de conserver avec elles les étiquettes qui rappellent leur origine.
+
+# Troisième Section.
 
 ...
