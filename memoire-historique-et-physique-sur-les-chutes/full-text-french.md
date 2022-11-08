@@ -538,8 +538,7 @@ Il résulte de ces deux rapports, que le 13 septembre 1768, sur les quatre heure
 
 La substance de cette pierre étoit d'un gris cendré pâle ; lorsqu'on en regardoit le grain à la loupe, on apercevoit qu'elle étoit parsemée d'une infinité de petits points brillants métalliques, d'un jaune pâle. Sa surface intérieure non engagée dans la terre, étoit couverte d'une petite couche très-mince d'une matière noire, boursouflée dans quelques endroits, et paroissant avoir été fondue ; l'intérieur de la pierre ne donnoit pas d'étincelles au briquet, quoique la croûte extérieure en donnât quelques-unes ; enfin sa pesanteur spécifique fut trouvée de 3,535.
 
-La pierre tombée à Lucé, ayant été ana-
-lysée par Lavoisier et Cadet, leur donna
+La pierre tombée à Lucé, ayant été analysée par Lavoisier et Cadet, leur donna
 
 Terre vitrifiable|55,5  
 Fer|36,0  
