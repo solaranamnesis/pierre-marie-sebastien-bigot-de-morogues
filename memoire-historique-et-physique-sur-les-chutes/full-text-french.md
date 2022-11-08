@@ -532,4 +532,105 @@ Je crois devoir faire observer en terminant cette section,
 
 # Troisième Section.
 
+On trouve dans les Mémoires de l'Académie des sciences pour l'année 1769, et dans le Journal de physique de 1772, le rapport fait par Fougeroux, Cadet, et Lavoisier, sur la pierre tombée à Lucé, département de la Sarthe, et présentée à l'Académie par l'abbé Bachelay. L'abbé Richard rapporte aussi ce fait dans son Histoire naturelle de l'air et des météores.
+
+Il résulte de ces deux rapports, que le 13 septembre 1768, sur les quatre heures et demie du soir, il parut du côté du château de la Chevalerie, près Lucé, un nuage orageux, dans lequel se fit entendre un coup de tonnerre fort sec et à peu près comme un coup de canon. On entendit à la suite, das un espace d'environ deux lieues et demie, sans apercevoir aucun feu, un bruit semblable aux mugissements d'un bœuf. Enfin quelques ouvriers de la paroisse de Périgné, à trois lieues environ de Lucé, ayant entendu le même bruit, regardèrent en haut, et virent un corps opaque qui décrivoit une ligne courbe, et qui alla tomber sur une pelouse, dans le grand chemin du Mans, auprès duquel ils travailloient. S'en étant approchés, ils trouvèrent une pierre, dont environ la moitié étoit enfoncée dans la terre. Elle étoit si chaude qu'il n'étoit pas possible d'y toucher ; aussi s'en éloignerent-ils saisis de frayeur. Mais étant revenus quelques temps après, ils virent qu'elle n'avoit pas changé de place, et la trouvèrent assez refroidie pour pouvoir la manier. Elle pesoit sept livres et demie ; sa forme étoit triangulaire, c'est-à-dire qu'elle présentoit trois espèces de cornes arrondies, dont une dans le moment de sa chûte, étoit entrée dans le gazon : toute la partie qui étoit entrée dans la terre étoit de couleur grise ou cendrée, tandis que celle qui étoit restée exposée à l'air étoit extrêmement noire.
+
+La substance de cette pierre étoit d'un gris cendré pâle ; lorsqu'on en regardoit le grain à la loupe, on apercevoit qu'elle étoit parsemée d'une infinité de petits points brillants métalliques, d'un jaune pâle. Sa surface intérieure non engagée dans la terre, étoit couverte d'une petite couche très-mince d'une matière noire, boursouflée dans quelques endroits, et paroissant avoir été fondue ; l'intérieur de la pierre ne donnoit pas d'étincelles au briquet, quoique la croûte extérieure en donnât quelques-unes ; enfin sa pesanteur spécifique fut trouvée de 3,535.
+
+La pierre tombée à Lucé, ayant été ana-
+lysée par Lavoisier et Cadet, leur donna
+
+Terre vitrifiable|55,5  
+Fer|36,0  
+Soufre|8,5  
+Total|100,0
+
+Malheureusement à cette époque, l'art de faire des analyses étoit bien loin de la perfection où il a été porté dernièrement par les Vauquelin et les Klaproth ; on peut cependant reconnoître dans le travail des commissaires de l'Académie des sciences, des proportions très-approchantes de celles trouvées depuis dans les pierres tombées à l'Aigle, à Bénarès, à Wold-Cottage, à Sienne, à Sales, et dans beaucoup d'autres lieux.
+
+Les commissaires conclurent en terminant leur rapport, que la pierre présentée par Bachelay, ne devoit point son origine au tonnerre ; qu'elle n'étoit pas tombée du ciel ; qu'elle n'avoit pas été formée par des matières minérales mises en fusion par le tonnerre, comme on auroit pu le présumer ; que cette pierre n'étoit autre chose qu'une espèce de grès pyriteux, qui n'avoit rien de particulier que l'odeur hépatique qui s'en exhaloit pendant la dissolution dans l'acide marin. Et enfin l'opinion qui leur parut la plus probable, fut que cette pierre étoit couverte d'une petite couche de terre ou de gazon, et qu'elle avoit été frappée de la _foudre_, et par là mise en évidence. Ils supposoient aussi que la chaleur avoit été assez grande, pour fondre la superficie de la partie frappée.
+
+Nous observerons ici relativement à l'analyse précédente, que la quantité de soufre, qui paroît infiniment plus grande dans la pierre tombée à Lucé, que dans les autres substances analogues analysées depuis, étoit probablement moins forte qu'elle n'a paru aux habiles chimistes, qui l'ont analysée, attendu l'imperfection de leur méthode, et parce que d'ailleurs ils ont regardé toute la perte, comme due au soufre. J'observerai même, que la magnésie et le nickel, qui se sont toujours trouvés depuis dans ces sortes de pierres, n'ayant pas été recherchés par eux, on doit regarder comme nulle cette différence dans leur analyse ; la quantité de nickel a dû se trouver comprise dans celle du fer qu'elle a augmentée ; de son côté, celle de la silice a aussi dû s'accroître de la plus grande portion de la magnésie qui lui étoit combinée ; et d'ailleurs on sait que l'existence du chrôme dont la découverte est due au célèbre Vauquelin, n'étoit pas même soupçonnée à cette époque.
+
+Je concluerai avec les commissaires nommés par l'Académie, que la pierre de Lucé n'a pas été exposée à une longue chaleur, mais je regarde sa vitrification superficielle, comme démontrant qu'elle a éprouvé un degré de chaleur aussi vif que court. Il me paroît encore évident, d'après le rapport, que cette pierre est venue presque horizontalement, puisqu'elle étoit entrée très-peu en terre, et que d'ailleurs son mouvement de projection étoit assez lent pour qu'elle fût visible comme une masse noire. Je remarquerai aussi qu'elle n'étoit pas lumineuse, et que sa chûte n'a été accompagnée d'aucun météore apparent, quoiqu'il ne m'en paroisse pas moins constant qu'elle soit réellement tombée, le rapport des témoins oculaires, joint aux caractères de la pierre, rendant pour moi cette vérité inconstestable.
+
+Il est présumable que ce fut en 1768 que tomba à Aire, département du Pas de Calais, la pierre pesant près de huit livres, qui fut remise à l'Académie par Gurson de Boyaval.
+
+Il ne me paroît pas également probable que celle que Morand fils présenta à l'Académie, comme tombée du ciel, dans les environs de Coutances, département de la Manche, fût tombée en 1768, quoique les commissaires de l'Académie aient observé qu'à très-peu de chose près, elle étoit de la même nature que celle tombée à Lucé ; car ils auroient reconnu la même chose, s'ils eussent comparé cette pierre à beaucoup d'autres de même origine, mais tombées à des époques différentes. C'est de même, disent-ils, un grès parsemé de grains de pyrite martiale, et elle ne diffère de celle de Lucé qu'en ce qu'elle ne donne point d'odeur de foie de soufre, avec l'esprit de sel.
+
+Les pierres tombées à Lucé, à Aire, et dans le Cotentin, comparées ensemble, n'ont offert à l'œil aucune différence : elles ont présenté la même couleur, et à peu près le même grain, on y a reconnu de petites parties métalliques et pyriteuses, et elles étoient recouvertes d'une croûte noire ferrugineuse. Un morceau d'une de ces pierres a été pulvérisé, et on l'a fait brûler : cette poudre près de rougir a donné une forte odeur de soufre, puis de grise qu'elle étoit, est devenue couleur de safran de mars ; on l'a pesée au sortir du feu, et malgré le soufre qui s'en étoit évaporé, elle n'avoit rien perdu de son poids, _etc._
+
+L'historien de l'Académie ajoute que certainement cette Société savante fut bien loin de conclure de la ressemblance de ces trois pierres, qu'elles aient été apportées par le tonnerre ; mais que cependant la ressemblance des faits arrivés à trois endroits si éloignés, et la parfaite conformité entre ces pierres et les caractères qui les distinguent des autres pierres, lui ont paru des motifs suffisants pour publier cette observation, et pour éviter aux physiciens d'en faire de nouvelles sur ce sujet.
+
+Je ferai remarquer qu'il est impossible de méconnoître l'analogie parfaite qui existe entre ces trois pierres et celles tombées dans ces derniers temps. Malheureusement en 1769, le préjugé contre la chûte des pierres étoit trop fort pour pouvoir être détruit par les trois chûtes qui furent constatées dans l'année précédente, et les savants qui eurent alors le courage de les faire connoître, n'osèrent le faire qu'avec crainte, et sans se permettre même de laisser le public convaincu de la réalité de faits qu'ils regardoient comme inexplicables. Il eut cependant été prudent d'admettre comme vrais, les récits des témoins, qui sans avoir pu s'entendre entr'eux, rapportoient le même fait, et présentoient le même résultat, arrivé à peu près dans le même temps, et à des distances très-éloignées. Et nous voyons pourtant qu'il est très-probable que si l'abbé Bachelay n'eût osé commencer à fronder l'opinion générale, Gurson de Boyaval et Morand ne se fussent point hazardés à le faire, puisque même en annonçant le même fait, ils avoient négligé d'en recueillir les détails.
+
+Combien doit-on savoir de gré aux hommes assez courageux pour éclairer le public, en affrontant son opinion, et bravant le ridicule auquel on s'expose en heurtant les préjugés des savants, qui ne peuvent être détruits qu'en leur démontrant leur ignorance ; point dont tous conviennent diffcilement, surtout quand par leurs longues études ils ont mérité l'estime générale.
+
+Dans cette même année 1768, il tomba le 20 novembre, près de Maurkirchen, en Bavière, une pierre pesant trente-huit livres, qui se trouve déposée dans le cabinet de Munich. Maximus Imhof en a fait une analyse qui a été insérée dans le Magasin de Voigt, et dans les Annales de Gilbert.
+
+Le 17 novembre 1773, il tomba dans une terre labourée du Village de Séna, district de Sigéna, dans le royaume d'Aragon, une pierre pesant neuf livres une once. Le ciel étant parfaitement calme, on entendit sur le midi, comme un bruit d'artillerie, qui se répéta trois fois de suite, et qui fut suivi de la chûte de cette pierre, à peu de distance de deux laboureurs. L'un d'eux s'en approcha, mais l'odeur forte qu'elle répandoit, l'arrêta un moment ; remis de sa surprise, il revint, la souleva avec sa bèche, attendit qu'elle fût refroidie, puis l'emporta au village, où il la remit à son curé. D'après les informations prises sur les lieux, il résulte que le bruit et la chûte ne furent accompagnés ni d'orage ni d'éclair.
+
+Cette pierre fut adressée, peu de temps après sa chûte, au Ministre d'état du royaume d'Espagne, par dom Manuel de Roda, Capitaine général de Saragosse : depuis cette époque elle étoit conservée dans le cabinet de Madrid, d'où elle fut tirée momentanément pour être examinée et analysée par Proust, et remise ensuite dans le même cabinet.
+
+Cette pierre étoit de forme irrégulièrement ovoïde, sa longueur étoit de sept à huit pouces sur quatre ou cinq de large, et quatre dans sa plus grande épaisseur ; sa croûte étoit noire et vitreuse, fragile et très-mince, ce qui prouve qu'elle fut exposée à un feu aussi énergique que momentané ; fait qui se trouve encore demontré par la nature même de la pierre, car les parties métalliques et sulfurées qui reposent immédiatement sous la croûte, n'ont pas eu le temps de changer de couleur, ni même de perdre leur éclat, d'où Proust conclut avec raison que la chaleur de cette pierre, quoique suffisante pour brûler les mains, n'a pas été jusqu'à l'incandescence, et n'a agi qu'à la surface.
+
+Cette pierre a toute la porosité qu'on doit trouver dans un agrégat sableux, dénué de toute espèce de ciment ; le briquet n'en tire aucune étincelle ; sa couleur est le gris bleuâtre uniforme ; sa cassure est terreuse ; elle est formée de grains ovoïdes et arrondis, dont les plus gros ne passent guère la grosseur de ceux du chènevis ; et entr'eux sont parsemés des particules métalliques et sulfurées, éclatantes et jouissant d'une légère teinte de kupfernickel. Les grains terreux vus au miscroscope, présentent des points réfléchissants ou cristallins qui ne permettent pas de les confondre avec le sable ; ceux qui sont globulaires ont en général une dépression sur le côté.
+
+Proust a cru, avant d'analyser cette pierre, devoir en séparer les parties métalliques attirables à l'aimant ; par cette méthode il a enlevé de 0,17 à 0,22 de grenaillé métallique, qui d'après ses expériences renferment sur cent parties 0,07 de substance terreuse adhérente aux parties métalliques, 0,03 de nickel, et 0,90 de fer.
+
+Voulant ensuite connoître la proportion de fer sulfuré contenu dans la pierre tombée à Séna, il a recherché la quantité de soufre qu'elle renfermoit, et supposant que le sulfure de fer étoit au minimum, il a trouvé que sa quantité devoit être de 0,12 du poids de la pierre.
+
+Enfin, passant à l'analyse de la portion terreuse, il trouva qu'elle étoit formée de
+
+Sulfure de fer|0,12
+Oxide noir de fer|0,05
+Silice|0,66
+Magnésie|0,20
+Total|1,03
+
+et qu'elle renfermoit des atomes de chaux et de manganèse ; ce qui donne sur l'analyse une augmentation de 0,03, qui me paroît due à la trop forte estimation de la quantité de sulfure de fer, attendu que dans les autres pierres tombées de l'atmosphère, la proportion de cette substance s'est trouvée moindre de beaucoup et souvent presque nulle.
+
+Les auteurs étrangers ont constaté plusieurs autres chûtes de pierres qui eurent lieu à peu près dans ce même temps ; ainsi on trouve dans les Annales de Gilbert, que le 19 septembre 1775, il tomba près de Rodach, dans la principauté de Cobourg, une pierre qui se trouve maintenant dans le cabinet d'histoire naturelle de Cobourg.
+
+On trouve aussi dans le Bulletin de la Société philomatique, de mai 1810, que dans le mois de janvier ou de février 1776 ou 1777, il y eut une grande chûte de pierres en Italie, près de Fabriano, dans le territoire de Santanatoglia, ancien duché de Gamerino ; et quelques auteurs anglais ont rapporté que dans l'année 1779, il tomba des pierres à Petris-Wood, en Irlande. (Voyez _Gentlemans Magazine_, septembre 1796.)
+
+Enfin, le 19 février 1785, il tomba des pierres dans la principauté d'Aichstat, qui ont donné lieu à des notices publiées par le baron de Moll. (_Annalen de Berg und Hüttenkunde._ 3. 2.)
+
+La chûte d'une de ces dernières pierres, eut pour témoin un ouvrier travaillant près d'un four à tuiles : il la vit tomber à la suite d'un violent coup de tonnerre. Elle s'enfonça et se refroidit dans la neige, dont la terre étoit alors couverte. Elle avoit environ un demi-pied de diamètre, et étoit revêtue d'une croûte noire de deux lignes d'épaisseur, semblable à une vitrification ferrugineuse et exempte de soufre ; elle étoit dure, et paroissoit intérieurement formée d'un sable gris de cendre, mêlé de beaucoup de grains de fer natif très-fins et d'oxide de fer brun jaunâtre.
+
+Ayant été analysée par Klaproth, elle lui donna les mêmes principes constituants que les autres pierres atmosphériques, desquelles tous ses caractères extérieurs la rapprochent également.
+
+En effet, cent grains de cette pierre lui donnèrent à l'analyse,
+
+Fer|19,0  
+Nickel|1,5  
+Oxide de fer|16,5  
+Magnésie|21,5  
+Silice|37,0  
+Total|95,5
+
+La perte, compris le soufre et le nickel qui ne purent pas être recueillis pendant l'analyse, fut trouvée de 4,5. Après les opérations qui conduisirent à ces résultats, le même chimiste traita cent autres portions de ces pierres par l'acide sulfurique, et reconnut par là qu'elles ne renfermoient pas d'alcali.
+
+Stutz possédoit cette masse que le baron de Hompesch, chanoine d'Aichstat, reçut des environs de cette ville.
+
+C'est d'après Chladni, un grès d'un gris cendré, où se trouvent implantés de petits grains, les uns de véritable fer natif très-malléable à chaud, les autres d'un oxide de fer d'un brun jaunâtre. Cette pierre est revêtue d'une croûte noire ferrugineuse, qu'il dit même malléable et sans mélange de soufre. La malléabilité de l'enveloppe me paroît au moins douteuse, le fer qu'elle contient étant certainement oxidé. Au surplus cette masse est très-remarquable par les grains de fer oxidé qu'elle renferme.
+
+E. King rapporte dans son ouvrage, que le 13 juillet 1788, il tomba en France plusieurs pierres, dont quelques-unes pesoient trois livres et d'autres cinq livres : j'ignore d'où ce célèbre auteur a tiré cette citation dont je dois la connoissance à la complaisance de M. Leman, savant aussi estimable que modeste.
+
+Je ne puis avoir la prétention de donner ici sans aucune omission la suite chronologique des chûtes de pierres ; même dans cette troisième section, il est souvent impossible de débrouiller les fautes de citations, qui ont eu lieu relativement à quelques-uns des phénomènes dont je m'occupe. La chûte des pierres qui tombèrent dans les Landes en 1790, en est une preuve incontestable : les journaux et les hommes les plus justement célèbres l'ont faussement citée comme arrivée en 1789, tandis qu'elle n'eut lieu qu'en 1790. Un même savant, faute d'informations suffisantes, remit deux échantillons provenant de cette seule chûte, comme appartenant à deux différentes ; et son erreur copiée et recopiée un grand nombre de fois, me sembloit à moi-même une vérité démontrée, lorsque recourant à un témoin irrécusable, j'ai été à même de me détromper pour toujours.
+
+Plusieurs collections, et entr'autres celle de de Drée, renferment cependant des échantillons de ces pierres que l'on dit tombées à ces deux époques. Leur aspect même est très-différent, attendu que les échantillons des pierres tombées en 1790, ne présentent point de taches oxidées, tandis que ceux de la pierre que l'on dit tombée en 1789, sont remplis de taches brunes ou noires, dues sans doute à l'oxidation du fer, cette dernière pierre étant fort mal conservée et ayant été enfouie en terre pendant quelque temps, ainsi qu'en convient son premier possesseur, M. Rodrigues, conservateur de la collection d'histoire naturelle de Bordeaux, entre les mains de qui je l'ai vue, et duquel j'en ai acquis plusieurs fragments.
+
+Ces diverses opinions sur un fait de ce genre, me semblent donc mériter une discussion que je vais commencer par le récit de de la prétendue chûte de 1789, tel que le conflit des différents témoignages sembloit me le démontrer, afin non-seulement de mettre les savants en garde contre les rapports qui leur sont faits, mais encore de faire connoître combien une fausse indication se trouvant répétée, acquiert de force, et semble par là se rapprocher de l'évidence.
+
+Le comte de Bournon a écrit (dans le tome 56 du Journal de physique) que M. de Saint-Amans lui apporta un fragment d'une pierre tombée dans les Landes, en Gascogne, près de Roquefort, le 24 août 1789, à la suite de l'explosion d'un météore. Cette pierre avoit, dit-on, écrasé une chaumière, fait un trou d'environ cinq pieds de profondeur, et tué le métayer et quelques pièces de bétail. Un de ses fragments d'environ quinze pouces de diamètre, avoit été déposé au Muséum de Bordeaux, où je l'ai vu moi-même, mais très-diminué par la quantité de morceaux qui en avoient été enlevés. Il n'avoit, m'a-t-on dit, été retrouvé qu'en 1790, quelque temps après la grande chûte qui eut lieu le 24 juillet ; et il fut ramassé dans les décombres d'une chaumière qui, l'année précédente, avoit été incendiée par le tonnerre : j'en acquis plusieurs éclats étiquetés, qui offrent quelques légères différences par leur aspect intérieur, avec les pierres tombées depuis à l'Aigle, à Charsonville, et dans beaucoup d'autres lieux.
+
+Il me paroissoit probable que cette pierre étoit l'une de celles qui, d'après le général Lomet et Darcet fils, tombèrent à Barbotan, près Roquefort, en juillet 1789, et de la chûte desquelles l'un d'eux fut, diton, témoin, ainsi qu'il est imprimé au t. 5, p. 544 du Dictionnaire de chimie de l'Encyclopédie méthodique.
+
+Une de ces pierres fut donnée par Darcet fils, à Vauquelin ; on la disoit tombée en juillet 1789, à Barbotan, près Roquefort ; et ce fut le frère de Darcet, curé des environs, qui la lui envoya avec le procès-verbal qui avoit été dressé, de cette chûte extraordinaire.
+
+Lomet qui se trouvoit à Agen à cette époque, rapporta qu'il avoit paru un globe de feu très-éclatant, d'une lumière aussi pure que celle du soleil, de la grosseur d'un aérostat ordinaire, qui dura assez longtemps pour jeter l'effroi parmi les habitants du pays, et enfin qui décrépita et disparut. Quelques jours après les paysans apportèrent des pierres qui provenoient du météore, mais on se moqua d'eux, en traitant de fable ce qu'ils disoient, refusant même de prendre leurs pierres. Ils pourroient peut-être maintenant, remarque justement le célèbre Vauquelin, se moquer à leur tour des savants qui refusèrent alors de les écouter.
+
+Ces pierres ayant été examinées, présentèrent, comme les autres du même genre, une croûte extérieure noire et à demi-fondue ; et leur intérieur étoit d'un blanc gris, marqué de taches plus foncées ; analysées comparativement avec les pierres tombées à Bénarès, à Juillac, et dans plusieurs autres lieux, elles présentèrent la plus parfaite similitude, si ce n'est que les pierres tombées à Barbotan en 1789 et à Juillac en 1790, renfermoient une plus grande quantité de globules métalliques que celles tombées dans l'Yorckshire et à Bénarès. La pierre tombée à Barbotan fut aussi une de celles dans lesquelles Laugier reconnut la présence du chrôme.
+
 ...
