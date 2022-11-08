@@ -581,11 +581,11 @@ Voulant ensuite connoître la proportion de fer sulfuré contenu dans la pierre 
 
 Enfin, passant à l'analyse de la portion terreuse, il trouva qu'elle étoit formée de
 
-Sulfure de fer|0,12
-Oxide noir de fer|0,05
-Silice|0,66
-Magnésie|0,20
-Total|1,03
+Sulfure de fer|0,12  
+Oxide noir de fer|0,05  
+Silice|0,66  
+Magnésie|0,20  
+Total|1,03  
 
 et qu'elle renfermoit des atomes de chaux et de manganèse ; ce qui donne sur l'analyse une augmentation de 0,03, qui me paroît due à la trop forte estimation de la quantité de sulfure de fer, attendu que dans les autres pierres tombées de l'atmosphère, la proportion de cette substance s'est trouvée moindre de beaucoup et souvent presque nulle.
 
