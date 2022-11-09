@@ -678,4 +678,82 @@ M. Baudin se trouvant au château de Mormès, chez M. de Carrit-Barbotan, lors d
 
 « Environ trois minutes après, nous entendîmes un coup de tonnerre terrible, ou plutôt une explosion pareille à celle qu'auroit pu faire une décharge de grosse artillerie... Nous sortîmes dans le jardin ; le coup duroit encore, et le bruit sembloit perpendiculairement audessus de nos têtes. Le bruit de l'écho, paroissoit retentir dans les montagnes des Pyrénées, et dura bien quatre minutes... nous sentîmes aussi dans ce moment une odeur de soufre assez forte. »
 
+« Je conjecturai que le météore devoit être au moins à sept ou huit lieues de hauteur perpendiculaire, et qu'il pouvoit être tombé à quatre lieues environ de Mormès, vers le nord ; ce qui se trouva vrai, car il étoit tombé du côté de Juillac, et jusqu'auprès de Barbotan, une quantité de pierres. »
+
+« Il paroît que le météore éclata à une petite distance de Juillac, et que les pierres qu'il lança se dispersèrent dans un espace circulaire de près de deux lieues de diamètre, dans lequel il en tomba de différentes grosseurs. »
+
+« Je n'ai pas ouï dire que quelque maison ait été endommagée, quoiqu'il en soit tombé fort près de quelques-unes, ainsi que dans les cours et jardins de plusieurs d'entr'elles : ce qui rend ce heureux hasard moins surprenant, c'est que le météore éclata dans un pays de landes. On a trouvé dans les bois des branches rompues par le choc des pierres, qui faisoient en tombant un sifflement très-fort, que plusieurs personnes ont entendu. »
+
+« Des gens dignes de foi m'ont dit aussi que le météore, dans sa course, faisoit entendre un bruissement et un pétillement pareil à celui des aigrettes et des étincelles électriques, mais M. de Carrit-Barbotan et moi nous n'entendîmes absolument rien, lorsqu'il parut au dessus de nos têtes ; peut-être les exclamations que je fis à la vue de ce superbe météore, nous empêchèrent-elles de rien entendre. »
+
+« On a trouvé de ces pierres qu'on avoit vues tomber, qui pesoient dix-huit à vingt livres, et qui en tombant s'étoient enfoncées de deux à trois pieds dans la terre ; on m'a même rapporté qu'on en avoit trouvé du poids de cinquante livres. M. de Barbotan s'en est procuré une de dix-huit livres, qui a été envoyée à l'Académie des sciences, à Paris. »
+
+« Le météore a été vu à Bayonne, à Auch, à Pau, à Tarbes, et même à Bordeaux, et à Toulouse... On m'a-voit rapporté avoir entendu dire qu'il étoit aussi tombé des pierres dans la plaine, entre Tarbes et Bagnières, et que quelques maisons, dans le même pays, avoient été incendiées par la chûte de ce feu ; mais ce n'étoit que des bruits vagues et sans fondement, qui se sont trouvés démentis par la suite, par les personnes qui étoient sur les lieux dans le temps du phénomène. »
+
+« Je crois que si à Bayonne, à Auch, à Pau, on eût bien examiné à quelles étoiles répondoit le petit nuage blanchâtre que laissa le météore après son explosion, c'eût été un moyen de déterminer au juste sa véritable hauteur dans l'atmosphère. »
+
+A ce détail précis, M. Baudin joignit dans son intéressant imprimé, qu'il est remarquable qu'aucun savant n'ait encore cité, une description des pierres qui convient parfaitement à toutes celles de ce genre, mais que je ne rapporte point, attendu qu'elle est moins précise que celles des minéralogistes qui ont écrit depuis ; enfin, M. Baudin donne comme l'explication la plus vraisemblable, la condensation des exhalaisons minérales qui se sont élevées du sein des montagnes, et essaie d'appuyer son opinion par le rapprochement de divers faits analogues, rapportés par plusieurs auteurs anciens et modernes.
+
+Je dois la connoissance du Mémoire de M. Baudin, à M. Chaudruc-de-Crazannes, ancien secrétaire de l'Athénée du département du Gers, et maintenant secrétaire de la Préfecture du Loiret. Ses talents connus, en littérature et en antiquités, ne l'ont point laissé étranger aux sciences qu'il a toujours cultivées avec fruit : en juillet 1801, il fit connoître, dans le Journal des Arts, dans la Décade Philosophique, et dans le Mercure, le phénomène dont je m'occupe ici ; mais n'ayant pu alors acquérir de renseignements exacts, il en plaça la date au 11 juillet 1791. Ayant pris depuis d'autres renseignements auprès du Maire de Houza et de M. Baudin lui-même, il m'a autorisé à rectifier ici l'erreur involontaire que des rapports infidèles lui avoient fait commettre.
+
+Vauquelin observe que toutes les pierres tombées présentent le même aspect que celles de Bénarès, de l'Yorck-Shire, et des environs de Barbotan, en sorte qu'on croiroit volontiers qu'elles ont été détachées de la même masse. Leur surface est noirâtre, lisse, et comme vernissée par un commencement de fusion ; leur intérieur est d'un blanc gris marqué d'une quantité plus ou moins nombreuse de taches brunes, ou d'un gris plus foncé que le reste de la masse ; cependant celles de Bénarès et de l'Yorck-Shire sont un peu plus blanches à l'intérieur que celles de France. On y remarque des pyrites blanches, dont la cassure est très-lamelleuse, des globules de fer métallique et ductile, dont le poids s'élève pour quelques-uns jusqu'à trois ou quatre grammes ; mais ce fer a une couleur plus blanche et une dureté plus considérable que celle du fer ordinaire, il est aussi moins ductile, ce qui provient du nickel et du soufre qui lui sont combinés, ainsi que l'analyse chimique le démontre. Les pyrites renferment les mêmes éléments, mais dans des proportions différentes. Quant à la substance terreuse, les analyses comparatives de quelques pierres citées par Vauquelin, lui ont démontré qu'elles ont la plus parfaite similitude entr'elles ; d'où il conclut que l'on doit regarder comme une chose exactement démontrée, que les pierres tombées en différentes régions de la terre, sont composées des mêmes principes.
+
+Le Bulletin de la Société philomatique, de mai 1810, rapporte que le 17 mai 1791, on fut témoin, près de Castel-Berardenga, en Toscane, d'une chûte de pierres semblable aux autres déjà décrites.
+
+Edward King rapporte dans son intéressant ouvrage, qui malheureusement est trop peu connu en France, que le 20 octobre 1791, il tomba beaucoup de pierres près de Ménabilly, en Cornwall. Une de ces pierres, de forme irrégulière, qui avoit un pouce sur un pouce et demi de dimension, est figurée sur trois faces dans son ouvrage, que je n'ai pu me procurer à cause de sa rareté ; en sorte que je dois cette note à la complaisance de M. Leman.
+
+Le 16 juin 1794, il tomba une douzaine de pierres, près Sienne, en Toscane. Voici comment sir William Hamilton rapporta ce fait, dont il eut connoissance par une lettre du comte de Bristol, datée de Sienne :
+
+« Au milieu d'une des plus violentes tempêtes mêlées de tonnerre, des pierres de figure et de poids différent, sont tombées au nombre d'environ une douzaine, aux pieds de quelques personnes. On ne trouve cette espèce de pierre nulle part, dans le territoire de Sienne. »
+
+Le comte de Bristol joignit à sa relation, un morceau d'une des plus grosses de ces pierres, qui dans son entier pesoit plus de cinq livres ; une autre pierre envoyée entière à Naples, pesoit environ une livre. Le dehors de toutes étoit noirâtre et présentoit les caractères d'une vitrification récente ; l'intérieur étoit de couleur gris clair, mêlée de taches noires et de quelques parties brillantes que l'on prit pour des pyrites.
+
+Suivant la relation de ce phénomène donnée par Ambrosio Soldani, ces pierres furent lancées chaudes, d'un nuage qui venoit du nord et qui paroissoit tout en feu, jetant de la fumée come une fournaise, lançant des étincelles comme le font les fusées, et faisant entendre de violentes détonations, dont le bruit étoit plus analogue à celui d'un canon ou d'une décharge de mousqueterie qu'à celui du tonnerre.
+
+Ces pierres, d'après Pictet, sont très-ressemblantes à celles qui tombèrent depuis à Sales en 1798, mais leur tissu est moins compacte et leur couleur plus blanche.
+
+Le comte de Bournon en décrivit une ainsi qu'il suit, dans un Mémoire dont la traduction est insérée au tome 5 du Dictionnaire de chimie de l'Encyclopédie méthodique, page 549.
+
+Cette pierre étoit entière, et par conséquent recouverte partout de la croûte noire qui est commune à ces sortes de productions. Comme la pierre étoit trés-petite, on fut obligé de la sacrifier en entier à l'analyse. Son grain étoit grossier et semblable à celui de la pierre de Bénarès. On y retrouvoit les mêmes corps gris globulaires, la même sorte de pyrite martiale, et les mêmes particules de fer à l'état métallique. La proportion de ces dernières étoit bien moindre que dans la pierre de l'Yorck-Shire, mais paroissoit plus grande que dans celle de Bénarès. La même substance terreuse grisâtre servoit de ciment, et on n'y observoit rien de plus, sinon quelques globules composés en entier d'oxide noir de fer attirable à l'aimant ; et un seul globule d'une autre substance qui paroissoit différer de toutes celles qu'on vient de décrire.
+
+Cette dernière substance avoit ün éclat parfaitement vitreux, et étoit tout-à-fait transparente ; sa couleur étoit le jaune pâle tirant légèrement sur le vert, et sa dureté égaloit à peine celle du spath calcaire : malheureusement elle étoit en quantité trop petite pour que l'on put en essayer l'analyse.
+
+Les pierres tombées à Sienne, étoient recouvertes d'une croûte noire plus mince que celle des autres pierres de même origine, auxquelles elles furent comparées ; elles en différoient encore en ce qu'elles sembloient avoir subi une sorte de retrait qui avoit occasionné un certain nombre de fissures ou de filons qui formoient des compartiments un peu ressemblants à ceux qu'on remarque dans les ludus ; au surplus, la pesanteur spécifique de cette pierre étoit de 3,418, ce qui se rapporte assez bien avec celle des autres pierres de même origine.
+
+Edward Howard, célèbre chimiste anglais, examina les pierres de Sienne, comparativement à celles tombées à Bénarès en 1798 ; et son Mémoire relatif à cet objet fut imprimé en 1802, dans les Transactions philosophiques. D'après cet auteur, leur enveloppe paroît semblable à celle qui recouvre les pierres tombées à Bénarès ; elles renferment dans leur intérieur des pyrites qui ne sont pas cristalisées, et ne peuvent point être séparées du reste de la masse par des moyens mécaniques ; elles renferment aussi d'autres portions métalliques que l'aimant en sépare facilement, lesquelles lui parurent composées de fer métallique renfermant d'un quart à un huitième de son poids de nickel. Quant à la partie terreuse, elle lui donna par l'analyse, outre une petite quantité de soufre qu'il n'a pas appréciée,
+
+Silice|46,67  
+Magnésie|22,67  
+Oxide de fer|34,67  
+Oxide de nickel|2,00  
+Total|106,01
+
+ce qui donne une augmentation de poids de six pour cent, sans compter le poids du soufre qui a été négligé.
+
+La partie terreuse analysée avoit été séparée assez exactement d'avec les parties métalliques attirables à l'aimant, et autant que possible de quelques petits corps globuleux qui se trouvent renfermés dans sa pâte, ainsi que dans celle des pierres de Bénarès.
+
+Cette grande augmentation de poids dans une analyse qui ne peut se faire sans éprouver quelque perte, ne doit être attribuée qu'à la sur-oxidation des métaux contenus dans la partie terreuse, et surtout à celle du fer, qui, comme tous les chimistes le reconnoissent, peut s'unir à des proportions très-variées d'oxigène. Chacun sait d'ailleurs, que l'on n'obtient qu'à un très-haut point d'oxidation, le fer précipité de sa dissolution dans l'acide muriatique concentré, comme le fit Howard dans son opération, tandis qu'il n'est que très-peu oxidé dans les pierres tombées dont il a fait les analyses, ainsi que la couleur de ces pierres et la malléabilité des grains ferrugineux le démontrent évidemment.
+
+Depuis la publication du Mémoire d'Edward Howard, le célèbre Klaproth a examiné et analysé les pierres tombées à Sienne én 1794 ; et il résulte de son travail que leur pesanteur spécifique est de 3,340 à 3,400, et qu'ilen a retiré,
+
+Fer natif|2,25  
+Nickel|0,60  
+Oxide noir de fer|25,00  
+Magnésie|22,50  
+Silice|44,00  
+Oxide de manganèse|0,25  
+Total|94,60
+
+et qu'il lui est resté pour le soufre uné partie du nickel et la perte 5,40.
+
+La chûte des pierres tombées à Sienne, donna lieu à diverses conjectures sur leur origine. Comme elle avoit eu lieu dix-huit heures après une éruption du Vésuve, quelques-uns prétendirent qu'elle pouvoit avoir été causée par ce volcan, sans faire attention que Sienne en étant éloignée d'environ deux cent cinquante milles, il eût fallu que les pierres eussent été lancées paraboliquement à vingt lieues au moins d'élévation au-dessus de la surface de la terre, et avec une vitesse au moins neuf fois plus grande que celle d'un boulet de canon ; ce qui les eût fait arriver en peu d'instants. Encore, dans ce résultat, faisons-nous abstraction de la différence de la pesanteur spécifique et de la résistance de l'air, qui dans la circonstance présente se trouveroit plus de deux mille fois plus grande que celle qu'éprouveroit un boulet de canon du même volume ; en sorte que si une de ces pierres eût eu les dimensions d'un boulet de vingt-quatre, elle eût eu à vaincre de la part de la résistance de l'air une opposition de près d'un million de livres ; et par conséquent sa force de projection eût été plus considérable que celle nécessaire pour faire parvenir une semblable pierre, des volcans de la lune sur la surface de la terre.
+
+Cette conjecture ne pouvant donc acquérir aucun degré de probabilité, le professeur Soldani supposa que ces pierres étoient des concrétions formées dans l'atmosphère, de diverses exhalaisons qui ont lieu à la surface de la terre ; mais dans cette supposition il faudroit admettre que la silice et la magnésie qui ont résisté jusqu'à ce jour aux moyens de fusion les plus violents, et qui d'ailleurs n'entrent que difficilement en combinaison, aient pu rester dissoutes à l'état gazeux, opinion infiniment hardie dont la probabilité ne peut être démontrée, même depuis que quelques expériences galvaniques semblent devoir faire admettre que les terres ne sont que des oxides métalliques.
+
+C'est pour essayer de donner une explication plus plausible du surprenant phénomène de la chûte des pierres, qu'Edward King confondant avec elle les pluies de cendre qui eurent lieu à une multitude d'époques différentes, à la suite d'éruptions volcaniques, supposa que les pierres tombées étoient formées par les déjections ou les exhalaisons des volcans, condensées ou réunies dans les parties élevées de l'atmosphère ; quelques physiciens ont même cru que les cendres volcaniques se trouvant réunies dans un nuage orageux, auront pu s'y agglomérer comme des grains de grêle, et qu'ensuite l'action du fluide électrique aura été suffisante pour vitrifier leur surface. Mais outre l'improbabilité de pareilles suppositions, il suffit pour se convaincre parfaitement que le phénomène de la chûte des pierres n'a aucune connexion avec les phénomènes volcaniques, de rapprocher les époques des diverses chûtes de pierres avec celles des différentes éruptions, et bientôt on sera à même de reconnoître que les opinions de King, d'Hamilton, et de plusieurs autres, ont été hazardées trop légèrement, et sans un examen et une discussion suffisante des faits qui auroient pu être à leur connoissance. On leur doit cependant beaucoup de reconnoissance de ce qu'ils ont recueilli plusieurs faits relatifs à un phénomène qui, à l'époque à laquelle ils s'en sont occupés, paroissoit encore fabuleux à beaucoup d'autres.
+
+Les savants anglais furent ceux qui nous firent connoître la chûte de pierres arrivée à Sienne, au centre de l'Italie. Bientôt leur propre pays fut le théâtre d'un semblable phénomène, car l'année suivante un évènement de ce genre fut constaté de la manière la plus authentique dans l'Yorck-Shire.
+
+Le dimanche 13 décembre 1795, à trois heures et demie après midi, il tomba près de l'habitation du capitaine Topham, à Wold-Cottage, dans l'Yorck-Shire, une pierre d'un volume considérable, en présence de plusieurs personnes qui attestèrent cet évènement remarquable par des certificats irrécusables.
+
 ...
