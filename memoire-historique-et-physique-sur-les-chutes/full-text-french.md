@@ -756,4 +756,79 @@ Les savants anglais furent ceux qui nous firent connoître la chûte de pierres 
 
 Le dimanche 13 décembre 1795, à trois heures et demie après midi, il tomba près de l'habitation du capitaine Topham, à Wold-Cottage, dans l'Yorck-Shire, une pierre d'un volume considérable, en présence de plusieurs personnes qui attestèrent cet évènement remarquable par des certificats irrécusables.
 
+Il résulte de la lettre que le capitaine Topham écrivit à ce sujet, d'après les renseignements qu'il eut soin de recueillir, et d'après les autres attestations qui furent données par les habitants du voisinage, que le poids de cette pierre étoit de trois stones treize livres (cinquante-cinq livres à peu près, poids d'Angleterre, ou environ quarante-huit livres, poids de France, ou vingt-trois kilogrammes et demi).
+
+Elle avoit fait un trou d'un pied et demi de profondeur, dont un pied dans la terre végétale, et six pouces dans la terre solide. Il fallut quelque temps pour l'extraire, et cependant elle étoit encore chaude et fumante quand on la retira.
+
+Plusieurs témoins la virent tomber ; l'un en étoit éloigné de neuf verges, et deux autres de soixante-dix verges. Ces trois personnes entendirent dans le moment de la chûte plusieurs explosions à peu près de la force d'un coup de pistolet ; suivant d'autres, le bruit fut analogue à celui de plusieurs coups de canon tirés au loin, à des intervalles assez rapprochés. La pierre avoit une odeur sulfureuse très-marquée ; le temps étoit doux et le ciel sans nuage, il n'y eut ni éclair ni tonnerre pendant toute la journée ; la pierre parut venir du sud-ouest, et sa forme étoit irrégulière et anguleuse.
+
+Il parut au témoin le plus proche, que dans le moment de la chûte de la pierre, il en sortoit des étincelles. Dans les villages voisins on entendit comme plusieurs coups de canon tirés au loin sur la mer, et les personnes du voisinage distinguèrent un sifflement violent occasionné par la vitesse du projectile, ce qui leur fit craindre qu'il fut arrivé quelqu'accident dans les environs, et particulièrement dans l'habitation du capitaine Topham.
+
+Cette pierre étoit entourée de la croûte noire torréfiée commune à toutes les autres du même genre. Examinée par de Bournon, elle lui présenta les mêmes parties intégrantes que les pierres de Bénarès, mais son grain se trouva plus fin ; elle renfermoit des grains irréguliers de la substance globuleuse qui a été remarquée dans les pierres de Bénarès ; enfin elle contenoit moins de parties pyriteuses et plus de fer attirable à l'aimant, ce qui permit de séparer, à l'aide du barreau aimanté, une quantité de ce fer égale à 0,08 ou 0,09 du poids total de la pierre. Le poids de quelques-unes de ces parcelles de fer étoit de plusieurs grains ; la portion terreuse étoit un peu plus tenace que dans la pierre de Bénarès, mais cependant peu dure, et ressembloit un peu au kaolin. La pesanteur spécifique de la pierre de l'Yorck-Shire, se trouva de 3,508.
+
+Cette pierre fut analysée par Howard, qui reconnut que la partie métallique malléable séparée par l'aimant, renfermoit 76,46 de fer, 11,77 de nickel, et qu'elle avoit entraîné avec elle 11,77 de la partie terreuse.
+
+La partie terreuse analysée séparément, lui donna,
+
+Silice|50,00  
+Magnésie|24,33  
+Fer oxidé|32,00  
+Nickel|1,34  
+Total|107,67
+
+ce qui donne une augmentation de 7,67 que l'on doit attribuer à l'oxidation du fer, ainsi que nous l'avons observé précédemment.
+
+On peut remarquer que cette pierre est l'une de celles dont la chûte ne fut accompagnée par aucun météore lumineux, et que les étincelles qui parurent en sortir ne peuvent être attribuées qu'à sa grande chaleur, et surtout à la combustion des parties métalliques superficielles.
+
+On trouve dans le Mémoire de Howard et de Bournon, que Southey voyageant en Portugal, en 1796, rapporta un détail certifié juridiquement, de la chûte d'une pierre que l'on entendit tomber le 19 février 1796, laquelle pesoit dix livres, et fut retirée encore chaude du trou qu'elle avoit creusé dans la terre. Ce fait se trouve aussi consigné dans les lettres que Southey écrivit pendant son séjour en Espagne et en Portugal.
+
+Depuis peu d'années l'Italie, l'Angleterre, et le Portugal venoient d'être les théâtres de diverses chûtes de pierres, lorsque ce phénomène fut de nouveau observé en France avec attention, quoique cependant avec défiance, par des savants justement célèbres.
+
+Sage, de Drée, et Prévost ont fait insérer dans le tome 56 du Journal de physique, diverses relations d'une chûte de pierres qui eut lieu en 1798, dans la commune de Sales, près Villefranche, département du Rhône. Ils ne sont point d'accord sur le jour où cet évènement remarquable eut lieu, mais tous trois s'accordent à le placer dans le mois de mars 1798 ; car ce ne peut être que par une erreur de l'imprimeur ou du copiste que le mois de juin se trouve indiqué par Sage dans le Journal de physique, puisque dans la même relation communiquée par l'auteur au professeur Izarn, le mois de mars s'est trouvé indiqué. Un fragment de cette pierre a été remis à Sage par le sénateur Chasset, et étoit accompagné d'une relation du fait écrite par M. Lelièvre, habitant de Villefranche, qui probablement ne l'avoit faite que sur les rapports qu'il eut soin de recueillir.
+
+Quant à la relation de de Drée, elle a été écrite sur les lieux, d'après une enquête qu'il a faite lui-même, et suivant la déposition des témoins oculaires de ce phénomène ; il est donc présumable que la date indiquée par lui est véritable, et que la chûte de la pierre eut lieu le 12 mars 1798, à environ six heures du soir. Donc, si M. Prévost prouvoit d'une manière incontestable (ainsi qu'il avance pouvoir le faire), que le 8 mars 1798, on vit à Genève un météore très-brillant allant à peu près de l'est à l'ouest, il faudroit en conclure que ce météore n'a eu aucun rapport avec la chûte de pierre en question, et que ce n'est que d'après la connexion que l'on a vouluétablir entre l'apparition des météores lumineux et la chûte des pierres, que Pictet a placé au 8 de mars la chûte de la pierre tombée à Sales ; les dates s'opposant évidemment à toute espèce d'identité. Rien ne prouvant d'ailleurs que le météore vu à Genève fut un bolide, ainsi que l'a avancé M. Prévost, si par la dénomination de Bolide l'auteur a prétendu désigner une pierre tombée de l'atmosphère.
+
+J'observerai encore à l'appui de cette opinion, que le météore vu par M. Prévost, n'ayant pu avoir moins de soixante mètres de diamètre d'après son rapport, eût paru immense aux habitants de Sales, qui l'ont aperçu de très-près, et que trois d'entr'eux s'étant trouvés à cinquante pas du lieu de la chûte, eussent été enveloppés dans l'atmosphère lumineuse qui formoit ce globe, duquel ils eussent probablement ressenti les effets. Ces deux phénomènes ne me paroissent donc avoir aucun rapport, et les rapprochements faits après coup par plusieurs personnes respectables par leurs connoissances, me paroissent avoir été faits sans preuves suffisantes.
+
+Quant à la différence de poids de cette pierre, comme Sage indique vingt-cinq livres et de Drée vingt livres, et que l'un et l'autre n'ont écrit que ce qu'ils ont appris par les relations des témoins, qui avoient brisé la pierre avant de la peser, je crois qu'on doit regarder le rapprochement de ces deux citations comme une preuve de plus de l'identité des faits, et non comme une contradiction, ainsi que l'a avancé M. Prévost.
+
+Voici donc le fait tel que le conflit des rapports paroît nous l'avoir transmis d'une manière incontestable.
+
+Le 12 mars 1798, à l'entrée de la nuit, c'est-à-dire, vers sept à huit heures du soir (le soleil se couchant à cette époque à cinq heures quarante-sept minutes, et le crépuscule prolongeant les jours jusqu'à six heures et demie), on vit dans la commune de Sales et dans les villages environnants, un corps igné qui se dirigeoit de l'est à l'ouest, avec une rapidité extraordinaire, laissant après lui une trace lumineuse, et jetant des étin-celles avec un pétillement continuel. Son élévation étoit peu considérable ; il passa en sifflant fortement au-dessus de plusieurs personnes, se précipita avec bruit à vingt pas d'une maison habitée par une famille entière, et en présence de plusieurs autres témoins, dont trois n'étoient éloignés que de cinquante pas du lieu de la chûte.
+
+Le lendemain matin, l'adjoint de la commune de Sales et plusieurs autres personnes se rendirent sur la place où on avoit vu le corps lumineux s'enfoncer dans la terre ; là ils trouvèrent un trou fort évasé, creusé d'un pied et demi dans la terre végétale, au fond duquel étoit une grosse masse noire ovoïde, de forme irrégulière, et d'après le rapport des témoins, de la grosseur à peu près d'une tête de veau ; elle étoit recouverte d'une croûte noirâtre, et quoiqu'elle ne fut plus chaude, avoit conservé l'odeur de poudre à canon. Cette masse de pierre étoit fendue dans plusieurs endroits ; elle fut pesée et cassée sur-le-champ, et il paroît que son poids étoit de vingt livres ou environ.
+
+Pictet a assuré à de Drée, qu'à l'époque où ce phénomène eut lieu, il aperçut, ainsi que beaucoup d'autres d'habitants de Genève et des villes voisines jusqu'à Berne, un corps lumineux qui parut tout à coup au sud, en s'avançant très-rapidement de l'est à l'ouest : on crut alors que cette apparition étoit due à un météore, ce qui dans ce cas pouvoit paroître probable ; mais il paroîtra aussi que le savant professeur de Genève a confondu les deux phénomènes, si on admet comme constant d'après les observations de Prévost, que le météore fut visible le 8 mars, et que la chûte de pierre n'eut lieu que le 12, ainsi que l'a démontré l'enquête faite par de Drée.
+
+Quoiqu'il en soit, la pierre tombée à Sales, présenta à l'examen les mêmes caractères et les mêmes principes constituants que les autres pierres tombées. Sa couleur dans l'intérieur est le gris cendré non éclatant, formé d'un mélange de parties blanchâtres et de points noirs métalliques ; sa cassure est grenue, approchante de celle des granits à petits grains, inégale, et raboteuse. Elle ne répand point d'odeur argilleuse par le souffle ; elle est peu tenace, maigre au toucher, magnétique, et le poli permet de distinger ses éléments minéralogiques, qui sont,
+
+1° Des grains de fer métallique malléable, souvent de grosseur imperceptible, mais qui atteignent quelquefois le poids de vingt-quatre grains : cette grenaille de fer est un peu plus blanche et moins ductile que le fer forgé ; elle est aussi plus dure, ce qui est dû au soufre et au nickel qu'elle renferme en petites proportions ;
+
+2° Des pyrites lamelleuses d'un blanc jaunâtre, disséminées en grains épars dans la masse, ou tapissant les fissures que la pierre présente ;
+
+3° Des globules sphériques ou irréguliers, d'un gris foncé, fragiles, à cassure unie et compacte, non effervescents par les acides, et infusibles au chalumeau ;
+
+4° D'autres parties globuleuses irrégulières, peu dures, d'un vert olivâtre, quelquefois un peu jaunâtre, dont la cassure a un aspect gras et luisant, et qui se confondent avec la pâte principale de la pierre, qui est peut-être de même nature.
+
+La superficie de la pierre est formée par une croûte noire vitrifiée, légèrement boursouflée, étincellante au briquet, de laquelle l'épaisseur est au plus d'un quart de ligne, et à la surface de laquelle on distingue quelques grains de fer et quelques globules gris qui ont résisté à la fusion.
+
+L'action de la chaleur qui a produit la vitrification, n'a agi qu'à la surface de la pierre et dans quelques fentes, ce que démontre l'intégrité des parties pyriteuses, qui ont conservé leur brillant et leur cassure lamelleuse, et sont restées sans altération très-près de la croûte vitrifiée. Ce qui confirme cette opinion, c'est que la partie blanche terreuse se fond au chalumeau en scorie noire boursouflée, ressemblante à la croûte vitreuse.
+
+Cette pierre analysée par Vauquelin, lui a donné,
+
+Silice|0,46  
+Oxide de fer|0,38  
+Magnésie|0,15  
+Nickel|0,02  
+Chaux|0,02  
+Total|1,03
+
+ce qui donne 0,03 d'augmentation dus à l'oxidation du fer, qui, pendant l'opération, a dû absorber une quantité plus considérable d'oxigène. Le nickel et un peu de soufre dégagés pendant l'analyse, paroissoient avoir été combinés aux grains de fer métallique.
+
+C'est après la chûte de pierre arrivée à Sales, en 1798, que Chladni place dans son Catalogue le phénomène analogue arrivé près de Bialoczer-Kiew, dans la Russie méridionale, duquel Kortum a fait mention dans le Magasin de Voigt, sans faire connoître ni l'année, ni le jour de la chûte. N'ayant sur ce fait nul autre renseignement, je ne le place ici que pour suivre l'exemple qui m'a été donné par Chladni.
+
+En terminant cette section, je crois devoir faire remarquer combien souvent il est difficile de faire admettre par les savants eux-mêmes, les vérités les plus évidentes et les mieux constatées. L'Académie des sciences avoit en vain nommé des commissaires pour s'assurer de la réalité du phénomène de la chûte des pierres ; plusieurs parties de la France, de l'Allemagne, de l'Italie, et de l'Angleterre, en avoient presque en même temps été le théâtre ; des procès-verbaux juridiques et une multitude de témoins en attestoient déjà l'existence dans toute l'Europe, sans que l'opinion de la plupart des gens érudits en fût ébranlée ; presque tous regardoient avec dédain les pièces de conviction qui leur étoient offertes, et n'écoutoient qu'avec mépris les récits circonstanciés qui leur étoient faits, sans même daigner les comparer entr'eux pour en déduire quelque probabilité.
+
+Aussi pendant tout l'espace de temps renfermé dans cette troisième section, les pierres tombées du ciel, reléguées dans les collections de quelques curieux, ne furent-elles point examinées par les chefs de l'Ecole moderne, ou ne le furent qu'avec peu d'attention, et avec l'intention bien formée de nier la possibilité de ce phénomène. Les analyses que nous avons citées, et les descriptions que nous avons données, des pierres dont les chûtes se sont trouvées classées dans cette troisième section, ne furent à la vérité faites que dans des temps postérieurs ; mais ne doit-on pas s'étonner avec raison, du pyrrhonisme des savants, qui refusèrent si long-temps de se rendre à l'évidence, et d'employer pourse convaincre de l'exactitude des témoignages, les moyens que la science mettoit entre leurs mains, qui les leur eussent confirmés de la manière la plus positive.
+
 ...
