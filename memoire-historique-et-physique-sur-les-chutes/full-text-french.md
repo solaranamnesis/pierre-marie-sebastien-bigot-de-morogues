@@ -24,6 +24,8 @@
 
 # [Troisième Section.](#troisième-section-1)
 
+# [Quatrième Section.](#quatrième-section-1)
+
 ---
 
 # Avis au Lecteur.
@@ -830,5 +832,7 @@ C'est après la chûte de pierre arrivée à Sales, en 1798, que Chladni place d
 En terminant cette section, je crois devoir faire remarquer combien souvent il est difficile de faire admettre par les savants eux-mêmes, les vérités les plus évidentes et les mieux constatées. L'Académie des sciences avoit en vain nommé des commissaires pour s'assurer de la réalité du phénomène de la chûte des pierres ; plusieurs parties de la France, de l'Allemagne, de l'Italie, et de l'Angleterre, en avoient presque en même temps été le théâtre ; des procès-verbaux juridiques et une multitude de témoins en attestoient déjà l'existence dans toute l'Europe, sans que l'opinion de la plupart des gens érudits en fût ébranlée ; presque tous regardoient avec dédain les pièces de conviction qui leur étoient offertes, et n'écoutoient qu'avec mépris les récits circonstanciés qui leur étoient faits, sans même daigner les comparer entr'eux pour en déduire quelque probabilité.
 
 Aussi pendant tout l'espace de temps renfermé dans cette troisième section, les pierres tombées du ciel, reléguées dans les collections de quelques curieux, ne furent-elles point examinées par les chefs de l'Ecole moderne, ou ne le furent qu'avec peu d'attention, et avec l'intention bien formée de nier la possibilité de ce phénomène. Les analyses que nous avons citées, et les descriptions que nous avons données, des pierres dont les chûtes se sont trouvées classées dans cette troisième section, ne furent à la vérité faites que dans des temps postérieurs ; mais ne doit-on pas s'étonner avec raison, du pyrrhonisme des savants, qui refusèrent si long-temps de se rendre à l'évidence, et d'employer pourse convaincre de l'exactitude des témoignages, les moyens que la science mettoit entre leurs mains, qui les leur eussent confirmés de la manière la plus positive.
+
+# Quatrième Section.
 
 ...
