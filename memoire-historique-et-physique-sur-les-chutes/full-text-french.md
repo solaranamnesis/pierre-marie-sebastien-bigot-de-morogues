@@ -902,4 +902,44 @@ Le Mémoire fait par Bournon et Howard avoit étonné l'Europe savante, et dès 
 
 Déjà Howard avoit démontré l'identité des pierres tombées en Angleterre, en Italie, en Bohême, et aux Indes Orientales, quand Vauquelin publia son intéressant travail, dans lequel il démontra aussi la parfaite idendité de ces pierres avec celles tombées à Barbotan.
 
+Les pierres de Bénarès analysées par lui, lui donnèrent les mêmes principes constituants que ceux qu'avoit indiqués Howard ; et la parfaite similitude des résultats obtenus par ces deux habiles chimistes, confirma encore l'exactitude de leurs travaux.
+
+Vauquelin n'avoit point eu une suffisante quantité de pierres de Bénarès, pour en analyser séparément toutes les parties distinctes, ainsi que l'avoit fait Howard, mais il trouva que les parties ferrugineuses séparées à l'aide d'un tamis fin, lui donnèrent de cinq à six centièmes de nickel et autant de soufre, et que le surplus de la partie terreuse étoit formée de,
+
+Silice|0,48  
+Oxide de fer|0,38  
+Magnésie|0,13  
+Nickel|0,03  
+Total|1,02
+
+et d'une très-petite quantité de soufre qu'il ne put déterminer exactement.
+
+Chacun s'empressa alors d'établir son systême sur l'origine de ces composés étrangers au domaine de la terre, par tout presque semblables entr'eux, mais différant essentiellement de tous les minéraux connus. Leur origine vainement recherchée sur le globe que nous habitons, fut supposée dans les cieux.
+
+Quelques-uns en attribuèrent la cause à des météores ignés, ne réfléchissant pas que toutes les chûtes de pierres n'avoient pas été accompagnées d'apparition de lumière ; d'ailleurs Howard soumettant un fragment d'une des pierres de Bénarès, à la décharge d'une forte batterie électrique, la rendit lumineuse dans l'obscurité, pendant plus d'un quart-d'heure, et la trace du fluide resta noire ; d'où l'on peut conclure que lorsque l'atmosphère est très-chargée d'électricité, le corps peut paroître lumineux pendant sa chûte, sans pour cela induire qu'il doit son origine à un météore.
+
+L'opinion qui suppose ces pierres détachées de la lune, quoique bien extraordinaire, est encore moins impossible à admettre que celles dans lesquelles on les suppose formées dans l'atmosphère, et la discussion où nous allons entrer relativement aux chûtes de pierres constatées depuis le Mémoire d'Howard, va nous servir à éclairer davantage cette question, sur laquelle on ne sera probablement pas de sitôt d'accord.
+
+C'est dans ces entrefaites que tombèrent, proche de l'Aigle, une grande quantité de pierres, le 26 avril 1803, entre une et deux heures de l'après-midi. Marais l'un des témoins oculaires a annoncé lé premier cet évènement remarquable.
+
+« Mardi dernier, dit-il, entre une et deux heures de l'après-midi, nous fûmes surpris par un roulement qui étoit semblable au tonnerre, nous crûmes que c'étoit le bruit d'un cabriolet, ou le feu dans le voisinage ; nous sortîmes et fûmes étonnés de voir l'atmosphère assez nette, à quelques petits nuages près, qui n'étoient pas assez épais pour dérober la clarté du soleil. Tous les habitants du Pont-de-pierre étoient à leurs fenêtres et dans les jardins, se demandant ce que pouvoit être un nuage qui paroissoit dans la direction du sud au nord, et d'où partoit ce bruit. La surprise fut très-grande, lorsque l'on apprit qu'il en étoit tombé des pierres très-grosses et en très-grand nombre, parmi lesquelles il y en avoit de dix, onze, et jusqu'à dix-sept livres pesant, tombées depuis l'habitation des Buats jusqu'à Gloss ; en passant par Saint-Nicolas, Saint-Pierre, _etc._ »
+
+Marais ajoute que ceux qui furent témoins d'un évènement aussi extraordinaire, entendirent comme un coup de canon, ensuite deux autres coups plus forts que le précédent, suivis d'un roulement qui dura environ dix minutes, et fut accompagné de sifflements causés par la chûte des pierres. On n'entendit plus rien après. Les paysans furent effrayés, et on observa même qu'avant la chûte, les animaux paroissoient fortement affectés. Les plus grosses de ces pierres entrèrent en terre à au moins un pied de profondeur. On en trouva près de Gloss, une grande quantité, et il se débita à ce sujet, parmi le peuple, des histoires sans nombre plus ou moins absurdes. Ceux qui voulurent ramasser ces pierres aussitôt après leur chûte, en furent brûlés.
+
+La lettre qui renferme ces détails étoit écrite, et son auteur avoit déjà reçu de ces pierres de plusieurs des témoins de leur chûte, dont aucun ne lui avoit fait mention d'un globe de feu, lorsque le sieur Lebuat l'aîné lui fit ajouter qu'on avoit vu planer dans la prairie un globe de feu, qui probablement étoit un feu folet.
+
+Ce phénomène annoncé dans Paris, excita l'attention de tous les savants de celte superbe capitale du monde. Chacun d'eux crut en examinant les faits, pouvoir écarter le voile qui déroboit leur cause. L'illustre corps de l'Institut s'en occupa sérieusement, et ses membres les plus célèbres ne dédaiguèrent point de rassembler tous les détails qui devoient répandre la lumière sur cet évènement remarquable.
+
+Fourcroy et Vauquelin, dont les noms chers aux chimistes se rattacheront à jamais à l'époque la plus brillante de cette science si nécessaire aux progrès des arts, et par là même utile à la prospérité des empires, s'occupèrent particulièrement de constater ce fait remarquable. Le premier de ces savants, duquel nous avons à regretter la perte encore récente, lut à la séance publique de l'Institut, le 28 fructidor an 11, un Mémoire relatif au phénomène qui, quelques mois auparavant, avoit étonné les habitants de l'Aigle. Là, attaquant le préjugé qui jusqu'alors avoit fait regarder les chûtes de pierres comme des fables, il en reconnut la certitude, et rapporta les faits dont Marais venoit de donner connoissance, en joignant à son récit celui de Leblond, membre de l'Institut, et habitant de l'Aigle depuis plusieurs années.
+
+Voici ce que ce savant écrivit alors à Lenoir :
+
+« Le 6 de ce mois, à une heure de l'après-midi, l'air étant plus froid que chaud, le ciel serein, on entendit dans l'espace de deux miriamètres, aux environs de l'Aigle, un bruit de tonnerre fort extraordinaire par son roulement continu, qui dura cinq ou six minutes, étant accompagné d'explosions fréquentes semblables à des décharges de mousqueterie. La direction de cet orage ou plutôt de ce phénomène, étoit du midi au nord. »
+
+« Comme cet évènement a répandu la terreur dans tous les lieux où on l'a remarqué, plusieurs personnes en ont fait des relations verbales, mêlées sans doute de quelque exagération, et parce qu'on aime à augmenter le danger auquel on s'est cru exposé, et parce que ceux qui font de tels récits ne sont pas ordinairement physiciens. »
+
+« Le résultat de tous ces récits m'a présenté deux faits, qui ont fixé mon attention ; »
+
+« 1° Un orage qu'on peut regarder comme extraordinaire, parce qu'il a été subit, qu'il s'est manifesté dans une assez grande étendue, à la même heure, dans un court intervalle de temps, et que l'effroi s'est répandu par tout où ce phénomène a eu lieu ; »
+
 ...
