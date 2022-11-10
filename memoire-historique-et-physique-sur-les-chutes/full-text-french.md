@@ -835,4 +835,71 @@ Aussi pendant tout l'espace de temps renfermé dans cette troisième section, le
 
 # Quatrième Section.
 
+La chûte de pierre qui eut lieu en 1798, dans la commune de Sales, au centre de la France, avoit été d'abord observée avec défiance et dédaignée par les hommes les plus instruits, lorsqu'enfin, dans la même année, des pierres tombées près de Bénarès, dans le Bengale, fixèrent l'attention de tous les physiciens de l'univers. L'Europe savante qui jusqu'à ce moment avoit rejeté la possibilité d'un fait qui lui étoit attesté, à tant d'époques différentes, par une foule de témoins oculaires, attendit pour l'admettre, que les barbares habitants de l'Inde vinssent fixer ses regards sur ce phénomène, dont ses provinces avoient si souvent été le théâtre : tant il est vrai que partout l'homme méprisant ce qui l'entoure, se fait une puérile gloire de son incrédulité, tandis qu'avide des récits si souvent mensongers qui lui parviennent des pays lointains, il les adopte préférablement à ceux dont il pourroit lui-même vénifier l'exactitude ! C'est ainsi que les physiciens modernes qui jusqu'alors s'étoient refusés à l'évidence, reconnurent pour la première fois la réalité des chûtes de pierres, lorsque John-Loyd William leur eut transmis les récits des habitants superstitieux de l'Inde, et eut par là fixé leur attention, sur les pierres qui tombèrent à environ huit heures du soir, le 19 décembre 1798, près de Krak-Hut, village situé au nord de la rivière Soomty, à environ quatorze milles de Bénarès, l'une des plus grandes villes de l'Indoustan, située sur les bords du Gange, par le 26° de latitude nord.
+
+Les habitants de Bénarès et des environs de cette ville, observèrent dans le ciel, du côté de l'occident, un météore très-lumipeux, sous l'apparence d'une grosse boule de feu. Cette apparition qui ne dura que peu d'instants, fut accompagnée d'un grand bruit, semblable au tonnerre, et fut suivie de la chûte de beaucoup de pierres dans le voisinage de Krak-Hut. Ce globe lumineux fut observé par plusieurs personnes des environs de Juan-Poor, lieu distant de douze milles de Krak-Hut. La lumière vive et momentanée qu'il répandit dans ce lieu, fut comparée à celle du clair de lune le plus brillant, et le bruit qu'il fit, à un feu de peloton mal exécuté. Les pierres qui tombèrent proche de ce lieu, paroissoient disséminées à une centaine de verges les unes des autres, et étoient enfoncées de six pouces en terre. Les Indiens effrayés craignirent que quelques-unes de leurs divinités n'eussent pris part à cet évènement remarquable, et attendirent avec crainte le retour du soleil, dont la lumière bien-faisante dissipa leur effroi. La terre fraîchement remuée de distance en distance, leur fit bientôt connoître un des effets du phénomène qui la veille les avoit intimidés, et se hasardant à fouiller les trous épars dans la campagne, ils trouvèrent au fond de chacun d'eux la pierre qui l'avoit creusé en tombant. Les fonctionnaires publics indiens et anglais, certifièrent de la manière la plus authentique cet évènement, dont un garde de nuit avoit pensé être la victime, une des pierres, du poids de deux livres, étant tombée sur le toit de sa hutte, qu'elle perça, en conservant encore assez de force pour s'enfoncer de plusieurs pouces dans le sol qui étoit très-endurci.
+
+Depuis l'époque où la chûte arrivée près de Bénarès fut constatée et admise par l'Europe savante, lord Valentia voyageant dans la contrée où ce phénomène avoit eu lieu, s'occupa de recueillir des témoignages propres à rendre sa certitude encore plus complète.
+
+Cauzy-Syud-Hussein-Ally rapporta que le 27 du mois d'aghun 1206 fussily, à la quatrième ghurie de la nuit, un grand météore que dans la langue des Indous on appelle _louke_, se montra du côté de l'ouest. Il répandit une vive lumière, et se brisant dans les airs, se divisa en plusieurs éclats. Trois détonations semblables à des coups de canon, se firent d'abord entendre et furent suivies de plusieurs autres qui ressemblèrent à une décharge de mousqueterie. On ne vit point alors les pierres qui tombèrent du ciel, mais le lendemain matin les gens du village les aperçurent. Ces pierres avoient de trois jusqu'à huit angles, et leur poids varioit entre cinq secs (environ dix livres) et quatre pices (environ quatre onces). Elles étoient tombées sur les jachères et les champs situés autour du village. On apprit que leur chûte avoit eu lieu dans les villages de Jewat et de Secroteh, situés dans les possessions du visir, et dans ceux de Guddowlée, Cutthowlée, et de Gopoulpoot, ainsi que dans le Tuppeh-Pissareh, situés sur le territoire de la Compagnie, c'est-à-dire, dans une étendue d'un coss en longueur (deux milles). Ces pierres étoient noires, elles avoient une odeur de poudre à canon, et leur cassure présentoit l'apparence d'un agrégat de sable fin et friable.
+
+La même relation porte à neuf ou dix le nombre des pierres qui ont été retrouvées ou au moins dont la chûte fut constatée dans cette circonstance, et à la suite se trouvent les rapports confirmatifs de cinq autres habitants des lieux où ce phénomène est arrivé.
+
+A l'instant où le phénomène eut lieu, le ciel étoit parfaitement serein ; on n'avoit pas vu la moindre apparence de nuage depuis le 11 du mois, et on n'en vit paroître aucun pendant plusieurs jours après. Ces pierres étoient de figures irrégulières, quelques-unes grossièrement cuboïdes, et toutes avoient leurs angles et leurs arêtes arrondies. Leurs dimensions varioient entre trois ou quatre pouces et même plus ; elles se ressembloient toutes très-exactement, étant recouvertes d'une croûte noire et dure, qui dans quelques endroits leur donnoit un aspect vernissé. Celles de ces pierres qui furent décrites par le Comte de Bournon, n'avoient rien de luisant à leur surface, mais au contraire étoient revêtues d'aspérités.
+
+A l'intérieur, les pierres tombées près de Bénarès sont de couleur gris cendré, et d'un tissu granuleux semblable à celui d'un grès grossier ; on y distingue aisément, à l'aide de la loupe, quatre substances différentes.
+
+L'une qui est assez abondante, est en grains sphériques ou ellipsoïdes de grosseur variable, entre celle de la tête d'une petite épingle et celle d'un pois ; quelques-uns même sont plus gros. Leur couleur est grise tirant souvent sur le brun, et ils sont absolument opaques ; ils se brisent facilement dans tous les sens, leur cassure est couchoïde, et présente un grain très-fin, compacte, légèrement lustré, et ressemble un peu à la cassure de l'émail ; ils enlèvent par le frottement le poli du verre, mais ne le coupent pas ; et enfin ils donnent de foibles étincelles quand on les frappe avec l'acier.
+
+La seconde de ces substances est du fer sulfuré de forme indéterminable et de couleur jaune rougeâtre : son tissu est granuleux, peu cohérent, et sa poussière est noire ; il n'est point attirable à l'aimant, et est irrégulièrement disséminé dans la substance de la pierre.
+
+La troisième est du fer métallique et malléable, disséminé en petits grains attirables à l'aimant, moins nombreux que les grains de pyrite, et qui paroissent former les deux centièmes de la masse totale.
+
+Ces trois substances sont réunies entr'elles par une quatrième d'un gris blanchâtre, de consistance presque terreuse, susceptible d'être séparée des autres à l'aide de la pointe du couteau, et même avec l'ongle, et de laquelle la ténacité est si peu considérable, que la pierre peut être brisée avec les doigts.
+
+La croûte noire quoique mince, est assez dure pour donner de brillantes étincelles à l'aide du briquet ; elle se brise sous le marteau, et est attirable à l'aimant comme l'oxide de fer noir auquel elle ressemble beaucoup ; enfin elle est mêlée çà et là de particules de fer à l'état métallique, qui peuvent être rendues visibles à l'aide de la lime.
+
+Les pierres tombées à Bénarès ne donnent point d'odeur argilleuse par le souffle ; leur pesanteur spécifique est de 3,352 ; et par conséquent un peu moindre que celle de plusieurs autres pierres de même origine qui contiennent une plus grande quantité de particules ferrugineuses, mais ordinairement beaucoup moins de fer sulfuré et de parties globuleuses.
+
+Outre les substances observées dans ces pierres par le comte de Bournon, Pictet remarqua qu'une partie des corps globuleux qu'elles renferment sont jaunâtres, demi-transparents, et ont l'aspect de la stéatite.
+
+Le célèbre chimiste Howard a publié l'analyse qu'il a faite d'une des pierres dè Bénarès, dont il a examiné séparément les diverses substances composantes. Ayant détaché une portion de la croûte noire, il a essayé d'en faire l'analyse, maïs la petite quantité qu'il en obtint et son mélange avec les parties terreuses, ne lui ont pas permis d'espérer d'en déterminer les proportions.
+
+Etant ensuite parvenu à séparer seize grains de pyrite, il a reconnu qu'ils renfermoient encore deux grains de substance terreuse étrangère, et que les quatorze grains restant étoient à peu près formés de
+
+Soufre|0,143  
+Fer métallique|0,750  
+Nickel|0,071  
+Total|0,964
+
+ce qui lui a donné une perte de 0,036 : déficit très-peu considérable en raison de la très-petite quantité sur laquelle il a opéré, et qui peut en partie être attribué au soufre volatilisé ou enlevé par l'hydrogène pendant l'opération.
+
+Les parties ferrugineuses métalliques lui ont donné, par une analyse approximative, en faisant abstraction des parties terreuses qu'elles avoient entraînées, environ,
+
+Fer|0,72  
+Nickel|0,28  
+Total|1,00
+
+Examinant ensuite les parties globuleuses, il a retiré,
+
+Silice|0,500  
+Magnésie|0,150  
+Oxide de fer|0,340  
+Oxide de nickel|0,025  
+Total|1,015
+
+ce qui lui a donné 0,015 d'augmentation, qui peuvent être attribués à l'oxidation des métaux pendant l'opération. Enfin la matière terreuse qui forme la masse séparée autant bien que possible, des autres substances qu'elle renferme, lui a donné à l'analyse,
+
+Silice|0,480  
+Magnésie|0,180  
+Oxide de fer|0,340  
+Oxide de nickel|0,025  
+Total|1,025
+
+l'augmentation devant également être attribuée à la sur-oxidation des métaux séparés par les réactifs.
+
+Le Mémoire fait par Bournon et Howard avoit étonné l'Europe savante, et dès ce moment les hommes les plus habiles s'empressèrent de vérifier leur examen, et de comparer les faits qu'ils avoient constatés avec ceux dédaignés jusqu'alors et regardés commes des fables enfantées par une crédulité puérile. La pierre tombée à Ensisheim en 1492, avoit déjà été dégagée de la poussière qui la recouvroit ; elle fut comparée à celles qui venoient d'être examinées. De Drée essaya une classification des faits parvenus à sa connaissance ; Izarn rassembla dans sa Lithologie atmosphérique les matériaux épars dans beaucoup d'ouvrages différents ; divers physiciens s'efforcèrent d'expliquer un fait dont la cause leur étoit inconnue ; et enfin l'Institut de France, le corps le plus savant du monde, s'occupa de discuter les opinions, et attendit avec impatience que l'occasion de constater le phénomène de la chûte des pierres se présentât de nouveau : en sorte que c'est véritablement au commencement du dix-neu-vième siècle, que doit être placée l'admission du phénomène de la chûte des pierres au nombre de ceux qui sont constatés d'une manière irrévocable.
+
+Déjà Howard avoit démontré l'identité des pierres tombées en Angleterre, en Italie, en Bohême, et aux Indes Orientales, quand Vauquelin publia son intéressant travail, dans lequel il démontra aussi la parfaite idendité de ces pierres avec celles tombées à Barbotan.
+
 ...
