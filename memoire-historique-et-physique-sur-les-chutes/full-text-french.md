@@ -1037,4 +1037,91 @@ Nous conclurons du rapprochement des deux faits qui se trouvent consignés dans 
 
 # Cinquième Section.
 
+Le 8 octobre de l'année 1803 (15 vendémiaire an 12), sur les dix heures du matin, il tomba une pierre dans la commune de Saurette, près d'Apt, département de Vaucluse. Sa chûte fut accompagnée des phénomènes que l'on remarque ordinairement en pareille circonstance : elle fut précédée par une violente détonation qui se fit entendre à plus'de quinze lieues de rayon, et accompagnée d'un sifflement extraordinaire qui surprit beaucoup les habitants du voisinage ; mais on n'observa point dans ce phénomène de globe lumineux avant la détonation : circonstance qui, ainsi que le remarque Vauquelin, est commune à un grand nombre de chûtes de pierres également bien constatées. La pierre tombée à Saurette fut remise au comte Chaptal, alors ministre de l'intérieur, qui après l'avoir présentée à l'Institut, en fit don au Muséum d'histoire naturelle.
+
+Laugier, habile chimiste, dont les talents acquièrent de jour en jour un nouvel éclat, fut chargé par les savants professeurs de ce superbe établissement, d'en faire l'examen et l'analyse.
+
+Il résulte de son travail à cet égard, que la pierre tombée à Saurette pèse sept livres six onces. Ses caractères extérieurs sont les mêmes que ceux des autres pierres atmosphériques, qui d'ailleurs se ressemblent toutes, mais celle-ci ressemble plus parfaitement aux pierres tombées à l'Aigle qu'aux autres. Son grain est fin, sa couleur est grise, sa croûte est noire et peu épaisse, et les globules de fer et de pyrites qu'elle renferme en abondance sont si petits qu'ils sont à peine visibles dans les cassures fraîches.
+
+Procédant ensuite à l'analyse de cette pierre, Laugier en retira,
+
+Silice|0,3400  
+Fer|0,3803  
+Magnésie|0,1450  
+Soufre|0,0900  
+Manganèse|0,0083  
+Nickel|0,0033  
+Total|0,9669
+
+Les 0,0331 qui manquent, furent attribués à l'eau que la pierre pouvoit contenir, et à la perte inévitable dans ces sortes d'opérations.
+
+On peut observer dans le résultat de cette analyse importante, que le manganèse se trouve au nombre des principes constituants des pierres atmosphériques, ainsi que l'avoit déjà reconnu Proust ; mais bientôt la pierre d'Apt examinée comparativement à celle de Véronne, devoit encore offrir ainsi qu'elle, le chrôme au nombre de ses éléments, et il étoit réservé au même chimiste qui en avoit donné l'analyse, dans le volume 4 des Annales du muséum d'histoire naturelle, d'annoncer à l'Institut cette découverte ; non-seulement dans ces deux pierres, mais encore dans celles d'Ensisheim, de l'Aigle, et de Barbotan.
+
+Dans cette même année 1803, une autre chûte de pierres fut remarquée le 13 décembre, non loin d'Eggenfelde, en Bavière. Le récit de cet évènement fut inséré dans les Annales de Gilbert et dans le magasin de Voigt, et une pierre du poids de trois livres et un quart provenant de ce phénomène, fut analysée par Imhoff.
+
+Les pierres tombées à cette époque sont très-remarquables en ce que par leurs caractères extérieurs elles se rapprochent plus que les autres des tufs basaltiques. Un échantillon possédé par Chladni, est surtout très-caractérisé parce qu'il renferme une substance ressemblante à l'olivin ou péridot granuliforme, qu'il contient disséminée dans sa masse.
+
+Je crois pouvoir faire observer à ce sujet, que le péridot granuliforme étant très-ordinairement renfermé dans les basaltes volcaniques et dans beaucoup de laves lithoïdes, ceux qui pensent qu'il est possible que les pierres tombées sur la terre aient été lancées sur sa surface par les volcans de la lune, trouveront dans cette analogie une cause de probabilité de plus.
+
+Les mêmes Annales de Gilbert renferment aussi les détails relatifs à la chûte d'une pierre qui tomba près de Glascow, en Ecosse, le 5 avril 1804.
+
+Le Catalogue publié par Chladni, cite comme ayant eu lieu, à l'époque du 15 mars 1805, la chûte d'une pierre qui tomba près Doroninsck, non loin de la rivière Indoga, dans le gouvernement d'Irkutsk, en Sibérie.
+
+Une autre chûte de pierres eut lieu en juin 1805, dans une des places de Constantinople, nommée Etmey-Dany.* Les pierres tombèrent en plein jour, avec beaucoup d'impétuosité. On regarda d'abord leur chûte comme l'effet de la malignité ; les agents de la police vinrent vérifier le fait, et posèrent une garde de Janissaires, qui resta en surveillance pendant trois jours et trois nuits ; mais bientôt l'odeur de soufre qui s'étoit fait sentir au moment de la chûte, et la croûte noire et brûlée des morceaux ramassés, ainsi que leur forme aplatie, firent connoître que cet événement devoit être attribué à un météore. (Voyez le Journal des mines, n° 134.)
+
+*) Cette chûte est rapportée par Haïr-Kougas-Ingisian, auteur d'un ouvrage arménien, intitulé Egang-Busan-Kian, imprimé à Venise en 1807, dans le couvent des Arméniens.
+
+Le 15 mars 1806, le phénomène de la chûte des pierres se renouvela dans le département du Gard. Pagès et d'Hombre-Firmas décrivirent les circonstances dont il fut accompagné, dans le tome 62 du Journal de physique, et le juge de paix du canton adressa au ministre de l'intérieur une relation détaillée des mêmes faits.
+
+Il résulte de leur rapport que le 15 mars 1806, à cinq heures et demie du soir, on entendit à Alais et dans les communes voisines, deux détonations, à quelques secondes l'une de l'autre, que chacun prit d'abord pour deux coups de canon. Elles furent suivies d'un roulement qui dura dix ou douze minutes. Il étoit tombé quelques gouttes d'eau le matin, mais à cette heure le ciel étoit éclairci. Bientôt on sut que deux aérolithes étoient tombées, l'une à Saint Etienne-de-Lolm, l'autre à Valence, villages du premier arrondissement du département du Gard.
+
+Les informations prises sur les lieux apprirent que plusieurs personnes avoient été témoins de la chûte de ces deux pierres, qui ne fut accompagnée de l'apparition d'aucun météore lumineux ; l'une et l'autre parurent venir obliquement du côté du midi, allant vers le nord, et comme sortant d'un nuège, sous la forme de corps noirs. Elles tombèrent avec rapidité et sifflement, après quoi on vit de la fumée dans l'air, et elles étoient encore chaudes, quand elles furent ramassées par les témoins de leur chûte.
+
+Celle tombée à Saint-Etienne-de-Lolm, creusa la terre de 0,12 mètres, et trouvant un rocher à cette profondeur, se brisa en plusieurs éclats, dont la masse générale avoit du peser quatre mille grammes (un peu plus de huit livres, poids de marc).
+
+Celle tombée dans la commune de Valence, étoit de forme grossièrement cubique, de la grosseur de la tête d'un petit enfant, et du poids d'environ quatre livres : elle s'étoit fendue en morceaux, et à moitié enfoncée dans la terre en tombant.
+
+Ces pierres sont intérieurement et extérieurement de couleur noire, font varier l'aiguille aimantée, et se délitent dans l'eau, comue les argilles, en laissant dégager des bulles gazeuses : l'extérieur paroît avoir subi l'action du feu.
+
+De Drée en donna la description ; Thénard en fit l'analyse ; et Monge, Fourcroy, Bertholet, et Vauquelin confirmèrent ses résultats, ayant été désignés à cet effet par le corps illustre de l'Institut.
+
+Les pierres tombées à Alais ne ressemblent à aucune de celles précédemment décrites, mais s'en rapprochent par leur composition.
+
+Elles offrent l'aspect d'une houille terreuse et sans éclat, friable et feuilletée ; elles sont tachantes à la manière du carbure de fer, prennent le poli des bitumes, par le frottement, s'aplatissent sous le choc, et répandent au feu une légère odeur bitumineuse ; elles renferment des grains de sulfure de fer jaune, et un grand nombre de grains de forme cubique, desquels la nature particulière n'a pas été déterminée.
+
+Leur cassure est inégale ; elles sont tendres et même très-friables, douces au toucher, insipides, insolubles dans l'eau ; et ne pèsent spécifiquement que 1,940. Chauffées au chalumeau, elles sont infusibles, mais elles colorent le verre de borax en jaune verdâtre.
+
+Un fragment d'une des pierres tombées dans les environs d'Alais, ayant été analysé par Thénard, lui parut formé des principes suivants :
+
+Silice|0,210  
+Oxide de fer|0,400  
+Nickel|0,025  
+Manganèse|0,020  
+Charbon|0,025  
+Magnésie|0,090  
+Soufre|0,035  
+Chrôme|0,010  
+Total|0,815
+
+Il manqua 0,185, qui furent attribués à la perte ordinaire, et à l'eau que la pierre avoit paru contenir pendant l'analyse.
+
+Les membres désignés par l'Institut pour répéter cette opération, trouvèrent des résultats presque semblables ; savoir,
+
+Silice|0,300  
+Oxide de fer au minimum|0,380  
+Nickel|0,020  
+Manganèse|0,020  
+Carbone|0,025   
+Magnésie|0,110  
+Chrôme|0,020  
+Total|0,875
+
+et une quantité inappréciable de soufre ; en sorte qu'ils éprouvèrent une perte de 0,125 qu'ils crurent devoir attribuer pour la plus grande partie à la présence de l'eau ; car on obtint quelques gouttes de ce fluide en chauffant la pierre dans une cornue.
+
+Thénard termine le détail de son analyse par les observations suivantes :
+
+« La pierre d'Alais ne diffère des autres aérolithes, qu'en ce qu'elle contient un peu de charbon, et les métaux à l'état d'oxide. Mais ne pourroit-on point expliquer cette différence en supposant que cette pierre n'a point éprouvé un haut degré de chaleur en traversant l'atmosphère, supposition d'autant plus admissible, qu'en calcinant cette pierre le charbon qu'elle contient se brûle de suite, et surtout parce qu'en la traitant par les acides, la silice qu'elle renferme, ne se prend point en gelée, tandis que celle des autres pierres tombées du ciel s'y réduit constamment. Ce qui indique qu'elles doivent être comme légèrement fritées ; et par conséquent qu'elles ont éprouvé comme un commencement de fusion. »
+
+L'analyse de ces pierres est d'autant plus remarquable, qu'il paroît démontré que l'eau est un de leurs principes constituants ; d'où nous sommes obligés de conclure que ceux qui prétendent que ce pierres sont lancées de la lune, sont forcés d'admettre la présence de l'eau dans cette planette, et par suite celle d'une atmosphère, à moins qu'ils ne préfèrent supposer que la surface de la lune soit assez froide pour que l'eau y soit toujours à l'état solide.
+
 ...
