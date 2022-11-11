@@ -1177,4 +1177,89 @@ Outre ces substances observées dans les pierres tombées à Weston, par MM. Sil
 
 Cette masse avoit de l'analogie avec un morceau de feld-spath fracturé. Voulant en détacher une parcelle pour l'essayer, la petite masse se détacha elle-même, laissant une cavité qui prouve qu'elle étoit déjà arrondie avant que de se mouler dans la pierre. Il reste encore un grain d'une substance analogue et quelques parcelles jaunâtres, dans la cavité d'où est sortie la substance lamelleuse.
 
+Cette substance raye le verre façon de Bohême ; essayée dans l'acide nitrique, elle n'y a point produit d'effervescence ; chauffée à l'aide d'un chalumeau, à la flamme d'une bougie, elle s'est aussitôt couverte d'un émail noir qui a suinté au travers en petits globules, mais la masse n'a point fondu. Par cette raison on peut présumer que la couleur gris blanchâtre ne s'est conservée dans une masse qui avoit été aussi fortement chauffée, que parce qu'elle n'avoit pas été exposée au contact de l'air, ou peut-être parce que la chaleur vive éprouvée par la pierre entière, n'avoit été que de peu de durée, et n'avoit que foiblement pénétré à l'intérieur, ainsi que tendroient à le démontrer les nombreuses fissures qui la pénètrent.
+
+Il n'en est pas moins très-remarquable qu'une substance lamelleuse portant les vrais éléments de la cristallisation, se soit trouvée dans ces sortes de pierres. Cette substance n'étoit certainement ni de la chaux carbonatée, ni du feld-spath ; et le morceau qui renfermoit la petite masse examinée par Gillet de Laumont, étoit bien un de ceux tombés dans le Connecticut, car il en avoit été rapporté par le colonel Gibbs, qui le déposa avec le Mémoire de Silliman et Kingsley, dans la collection du Conseil des mines.
+
+Warden auteur d'une bonne analyse de ces pierres en a donné une description qui s'accorde parfaitement avec les observations faites par les auteurs déjà cités à ce sujet.
+
+Ce savant après avoir observé que les pierres tombées dans le Connecticut sont enveloppées de la croûte noire ordinaire à ces sortes de substances, et que comme dans celles-ci leur masse est principalement formée par une substance granulaire facile à briser, ayant un aspect terreux, avec une couleur gris de cendre qui dans certains endroits passe au blanc grisâtre, remarque que les portions qui offrent cette dernière teinte et qui sont comme empâtées dans la masse, ont une forme arrondie, en sorte qu'on les distingue sous l'aspect de taches circulaires ou ovales qui interrompent la couleur du fond. La pesanteur spécifique de ces parties est de 3,300, et leurs fragments aigus rayent le verre.
+
+En observant les endroits fracturés de la pierre, on y aperçoit,
+
+1° Des globules particuliers, qui se détachent facilement des petites cellules dans lesquelles ils sont engagés, et dont la matière est semblable à celle de la pierre même, excepté que son grain est plus serré et sa cassure plus unie. On y aperçoit même, en l'exposant à une vive lumière, des indices de tissus lamelleux, ce qui se rapporte à l'observation de Gillet-Laumont et explique la comparaison que Silliman et Kingsley ont fait de l'apparence de cette substance avec celle du feld-spath ;
+
+2° On y reconnoît les grains de fer métallique déja observés, dont quelques-uns sont très-remarquables par leur blancheur ;
+
+3° Des grains de fer oxidé, de couleur de rouille.
+
+Warden ne put apercevoir aucune portion pyriteuse, quoique cependant l'analyse lui en démontra l'existence dans la masse de la pierre, et enfin il termine sa description par observer que tous les fragments, même ceux dans lesquels les grains de fer sont invisibles, ont la propriété magnétique mais sans polarité.
+
+L'analyse lui donna pour les proportions des principes constituants de cette pierre,
+
+Silice|0,4100  
+Soufre|0,0233  
+Acide chronique|0,0233  
+Alumine|0,0100  
+Chaux|0,0300  
+Oxide de manganèse|0,0133  
+Magnésie|0,1600  
+Oxide de fer|0,3000  
+Total|0,9699
+
+La perte fut donc de 0,0301. Il peut paroître étonnant que le nickel ne se trouve pas indiqué au nombre des éléments de cette pierre, et que les métaux y soient à l'état d'oxide, mais on doit remarquer que cette analyse a été faite sur une portion de pierré qui avoit été triturée dans un mortier, et que préalablement on en avoit retiré à l'aide d'une aiguille aimantée, toutes les portions attirablés à l'aimant, qui formoient les vingt-huit quarantièmes du total, et étoient un fer métallique très-cassant à cause du nickel qu'il renfermoit dans une proportion suffisante pour que sa dissolution purgée de fer par le prussiate de potasse, donnât encore 0,025 de prussiate de nickel. Il est probable que cette quantité ait été trop petite en raison de la perte inévitable dans ces sortes d'opérations, qui a toujours lieu dans un rapport d'autant plus considérable que les quantités sur lesquelles on a opéré sont moindres.
+
+Un Mémoire très-bien fait publié par Guidotti, professeur à l'Université de Parme, donna il y a peu de temps des détails très-intéressants sur une chûte de pierres qui eut lieu dans l'arrondissement de Borgo-San-Donino, à peu de distance de Parme, le 19 avril 1808, entre midi et une heure. Une de ces pierres, tombée à Pieve-di-Cusigano, département du Taro, est conservée dans la collection de la Direction générale des mines de l'empire, sous le n° 960 --- 1 : elle a été envoyée par le ministre de l'intérieur, et paroît extérieurement semblable à celles tombées à l'Aigle, en 1803.
+
+Il résulte des renseignements recueillis par Guidotti relativement à ce fait, qu'il tomba à cette époque plusieurs pierres dans les campagnes dites Cella-di-Costa-Mezrana, Pieve-di-Cusignano, et Varano-di-Marchesi, situées au sud-est de Borgo-San-Donino, et formant ensemble un triangle qu'on peut évaluer à neuf kilomètres de circuit.
+
+C'est dans cet espace que plusieurs témoins dignes de foi les virent tomber. Le ciel étoit couvert de légers nuages et l'air tranquille, lorsque tout-à-coup, sans apercevoir aucun éclair, on entendit deux grandes explosions suivies de plusieurs autres moins fortes, ce qui dura un peu plus d'une minute. A ce bruit succéda pendant trois ou quatre minutes, un autre plus sourd, semblable à celui du feu dans une cheminée ; c'est à ce moment que la chûte des pierres eut lieu avec sifflement. Les spectateurs aperçurent comme des traces de fumée, et quelques-uns même crurent reconnoître l'effet de la foudre, mais plusieurs témoins affirmèrent n'avoir senti aucune odeur sulfureuse, et n'avoir vu ni globe de feu, ni fumée, ni éclair ; ce qui ne paroît pas démontrer que les rapports de ceux qui affirmèrent avoir reconnu ces choses, fussent faux, leurs positions respectives ayant pu déterminer la différence de leurs observations.
+
+Ces pierres étoient fort chaudes au moment de leur chûte, car elles brûlèrent ceux qui voulurent les arracher, avec leurs mains, des trous qu'elles avoient creusés en tombant.
+
+« Elles offrent des caractères extérieurs et chimiques analogues à ceux présentés par les autres pierres de même origine. Leur forme est irrégulière, elles sont revêtues d'une croûte d'un brun noir, mince, à demi vitrifiée, assez dure pour faire feu au briquet ; leur cassure est irrégulière, à fragments indéterminables et écailleux ; leur contexture est grenue ; à l'intérieur leur couleur est gris de cendre clair, présentant beaucoup de points de couleur plus foncée, des parties métalliques, d'autres lamelleuses de couleur blanc jaunâtre, et d'autres en masses plus petites, globuleuses, et de couleur d'étain. »
+
+« Les parties métalliques lamelleuses isolées n'ont aucune action sur l'aiguille aimantée, mais les globuleuses l'attirent puissamment ; aussi dès qu'on lui présente la surface interne de la pierre, elle exerce sur elle sa force attractive. »
+
+« Les pierres tombées à Borgo-san-Donino, sont tendres et faciles à broyer ; elles sont poreuses ; elles absorbent l'humidité avec avidité, et happent à la langue ; plongées dans l'eau, elles s'en imprègnent en laissant échapper les bulles d'air renfermées dans leurs pores ; et enfin leur pesanteur spécifique est de 3,460. »
+
+« Les acides attaquent cette pierre, en laissant dégager du gaz hydrogène sulfuré formé par double affinité, au dépend de l'eau qu'ils renferment, pendant l'oxidation du fer métallique et la décomposition des pyrites contenues dans la substance pierreuse. »
+
+Un fragment des pierres tombées près de Parme, étant chauffé violemment, commence par noircir, et finit par se recouvrir de la fritte noire qui enduit toujours ces sortes de pierres. Réduites en poudre et chauffées avec le verre de borax, elles le colorent en noir, et les fragments minces de ce verre paroissent de couleur d'hyacinthe ; enfin ces pierres répandent une odeur sulfureuse pendant la pulvérisation, et renferment beaucoup de portions séparables par l'aimant.
+
+Au Mémoire dans lequel Guidotti constate la chûte des pierres tombées dans les environs de Parme, se trouve jointe leur analyse par le même chimiste, qui moins exercé à ce genre d'opérations que les Vauquelins, les Klaproth, et les Thénard, mérite cependant d'autant plus de confiance qu'il joint à ses résultats les détails des expériences qui l'ont conduit à les adopter, et que les proportions qu'il donne semblent d'ailleurs assez conformes à celles déjà déterminées dans les autres pierres de même origine.
+
+Les proportions déterminées par Guidotti dans la composition de ces pierres, sont,
+
+Silice|0,500  
+Fer oxidé|0,390  
+Magnésie|0,110  
+Nickel|0,025  
+Soufre|0,040  
+Total|1,065  
+
+ce qui donne une augmentation de 0,065, laquelle doit être attribuée à l'oxidation des métaux pendant l'analyse.
+
+Il est probable que si elle eût été faite avec encore plus de soin, le même chimiste eût reconnu dans cette pierre la présence du chrôme, celle du manganèse, celle de la chaux, et celle de l'alumine ; car Vauquelin a constaté depuis, la présence de l'alumine dans les pierres météoriques, comme on le voit dans le tome 69 des Annales de chimie, par les expériences qu'il entreprit pour vérifier celles de Sage, qui l'avoit annoncée le premier.
+
+Vauquelin indiqua dans son analyse, que le fer métallique se trouvoit combiné au nickel, que le soufre se trouvoit à l'état de sulfure de fer, le chrôme à l'état de chrômate de fer, en quantité notable, et le manganèse, la chaux, et l'alumine, en très-petite quantité. Il observe aussi qu'il avoit déjà trouvé dans les analyses des autres aérolithes, des traces d'alumine et de chaux, mais en si petite quantité qu'il n'avoit pas cru devoir en faire mention.
+
+Guidotti analysa séparément aussi les petites masses lamelleuses de couleur blanche jaunâtre, renfermées assez abondamment dans les pierres tombées près de Parme, et reconnut qu'elles étoient de véritables pyrites ferrugineuses, renfermant le quart de leur poids de soufre et un peu de nickel. Il est bon d'observer que ces portions pyriteuses paroissent beaucoup plus abondantes dans les pierres tombées près Parme que dans la plupart des autres pierres météoriques.
+
+On remarque dans les conclusions qui terminent ce Mémoire, que le phénomène qui y donna lieu ne parut point précédé d'un globe de feu, ainsi que ce fait paroît avoir été constaté dans plusieurs autres circonstances analogues ; ce qui détermina l'auteur à croire qu'on doit en conséquence ajouter une cinquième classe dans la division que de Drée a déjà proposée un peu prématurément, puisqu'elle tendroit à éloigner des faits identiquement les mêmes, et qui n'ont paru différer entr'eux que par la suite nécessaire de la situation accidentelle dans laquelle se sont trouvés les observateurs.
+
+Enfin l'auteur adopte à la fin de ses conclusions, l'opinion de ceux qui supposent que les pierres météoriques sont formées dans l'atmosphère, comme étant celle qui lui paroît la plus probable, et comme présentant le moins de difficultés insurmontables.
+
+Quelque contraire aux faits que cette supposition me paroisse, je n'entreprendrai point de la combattre ici, attendu que je me réserve d'exposer les motifs qui me semblent devoir la détruire, dans la conclusion de cet ouvrage, en résumant les circonstances favorables ou opposées à chacune des théories proposées jusqu'à ce jour pour l'explication peut-être prématurée de ce phénomène remarquable, qui déjà a donné lieu à un grand nombre de suppositions aussi différentes que hazardées : tant il est vrai que l'esprit de systême, toujours prompt à supposer, établit souvent une explication chimérique sur les faits qu'il ne connoît pas encore, et prépare d'avance par les rêves de l'imagination si dangereux dans l'étude des sciences exactes, des obstacles presque insurmontables à la connoissance de la vérité.
+
+Chladni rapporte dans son Catalogue, inséré au tome 25 du Journal des mines, que le 22 mai 1808, il tomba beaucoup de pierres près de Staunern, en Moravie. Il ne donna aucun autre détail sur cette chûte d'autant plus intéressante que les aérolithes dont il est ici question, semblèrent d'abord présenter de très-grandes différences avec toutes les autres déjà décrites, et parurent devoir former une espèce particulière dans ce singulier genre de substances minérales.
+
+En effet Klaproth rapporte à la suite de l'analyse des pierres tombées en 1808, près de Lissa, en Bohême, qu'on lui remit un échantillon pulvérisé d'une aérolithe qui tomba, dit-on, le 22 mai 1808, près de Staunern, en Moravie ; qu'en conséquence on ne pouvoit pas y reconnoître les caractères extérieurs. Cette pierre, ajoute-t-il, feroit une très-grande exception de toutes les aérolithes connues, car par l'analyse elle paroît être un basalte décomposé.
+
+Il étoit donc à désirer qu'on répétât ces expériences sur un morceau entier qui jouît de tous les caractères nécessaires, pour qu'il ne restât rien de suspect à cet égard, et qu'une bonne description minéralogique se trouvât jointe à cette analyse.
+
+C'est ce qui fut fait dans la suite par le comte d'Unin, possesseur d'un très-beau morceau de l'aérolithe qui nous occupe ici, que lui-même avoit ramassé sur les lieux. Il reconnut que sa surface est fondue et d'un noir parfait à l'extérieur, mais qu'à l'intérieur sa couleur est d'un gris de cendre clair, qui ne change pas par la raclure : on y aperçoit aussi des grains plus compactes et d'une couleur plus foncée que le reste de la masse, et d'autres grains de sulfure de fer, mais en très-petite quantité.
+
+Cette pierre est tendre, friable sous les doigts, ne raye point le verre, et ne donne point d'étincelles au briquet ; sa pesanteur est de 3,19.
+
 ...
