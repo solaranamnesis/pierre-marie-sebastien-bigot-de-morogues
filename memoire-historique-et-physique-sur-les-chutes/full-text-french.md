@@ -26,6 +26,8 @@
 
 # [Quatrième Section.](#quatrième-section-1)
 
+# [Cinquième Section.](#cinquième-section-1)
+
 ---
 
 # Avis au Lecteur.
@@ -941,5 +943,98 @@ Voici ce que ce savant écrivit alors à Lenoir :
 « Le résultat de tous ces récits m'a présenté deux faits, qui ont fixé mon attention ; »
 
 « 1° Un orage qu'on peut regarder comme extraordinaire, parce qu'il a été subit, qu'il s'est manifesté dans une assez grande étendue, à la même heure, dans un court intervalle de temps, et que l'effroi s'est répandu par tout où ce phénomène a eu lieu ; »
+
+« 2° Des pierres trouvées à la suite de ce phénomène, à des distances considérables les unes des autres : pierres que le pays n'offre point ordinairement, qui présentent un certain éclat métallique, et qui ont tous les caractères des substances soumises à un feu violent. J'en ai eu sept entre les mains, recueillies dans des lieux différents ; la plus forte pesoit dix-sept livres. »
+
+Dans une seconde lettre, Leblond donne des détails plus positifs encore : « Une grande explosion eut lieu dans le village de la Vassolerie ; on y avoit remarqué un nuage électrique sans pluie ni grêle. L'explosion fut suivie d'un bruit sourd et violent, semblable à celui de la chûte d'un corps très-lourd. Six personnes se tranportèrent au lieu d'où ce bruit partoit ; à cinquante mètres de distance, elles virent à l'entrée d'un pré, un trou du diamètre d'un boulet de vingt-quatre, et profond de près de cinq décimètres. On en retira une pierre, pesant neuf kilogrammes. »
+
+Quelques jours après, Leblond se transporta lui-même dans la prairie. Il vit que la pierre s'étoit arrêtée sur une couche de silex, et que de petites touffes de gazon avoient été éparpillées à l'entour. On lui apporta successivement neuf pierres, tombées à la même heure, à Saint-Nicolas-de-Sommaire, au Fontenil, et dans toute cette région du midi au nord, occupant l'espace de deux à quatre kilomètres.
+
+Plusieurs de ces pierres furent envoyées à Paris : Fourcroy en reçut deux de Leblond lui-même. Elles sont toutes irrégulières ; poliédriques, souvent cuboïdes, quelque-fois subcuneïformes, de diamètre et de poids très-varié ; toutes recouvertes d'une croûte noire graveleuse, formée d'une matière fondue et remplie de petits grains de fer agglutinés. La plupart sont cassées dans plusieurs de leurs angles, soit par leur choc entr'elles, soit par la rencontre du silex, sur la terre. Leur intérieur ressemble à celui de toutes les pierres analysées par Howard et Vauquelin ; elles sont grises, un peu variées dans leurs nuances, grenues et comme écailleuses, fendillées dans beaucoup d'endroits, et remplies de parties brillaates métalliques. Leur aspect est le même, que celui des autres pierres tombées du ciel.
+
+Vauquelin et Fourcroy en firent l'analyse, et reconnurent qu'elles étoient composées de
+
+Silice|0,53  
+Fer oxidé|0,36  
+Magnésie|0,09  
+Nickel|0,03  
+Soufre|0,02  
+Chaux|0,01  
+Total|1,04
+
+ce qui donne une augmentation de poids de 0,04, qui doit être attribuée à l'oxidation des métaux, opérée pendant l'analyse.
+
+Le même Mémoire renferme une analyse de la pierre tombée à Ensisheim, de laquelle nous avons déjà parlé précédemment, et est terminé par des réflexions sur l'origine des pierres tombées de l'atmosphère. L'auteur y remarque que ces substances ne contiennent point d'alumine ; assertion qui peu de temps après se trouva démentie avoir eu lieu à la suite d'un météore lumineux, et croyant d'après un mûr examen que tous les récits relatifs aux masses météoriques, font précéder leur chûte de l'apparition d'un globe de feu, il écouta avec attention le rapport d'un courrier de Brest à Paris, qui lui dit que le jour de la chûte, étant entre Saint-Rieux et Pré-eu-pail, il vit dans le ciel un globe de feu qui parut, par un temps serein, du côté de Mortagne, et sembla tomber vers le nord ; que quelques instants après on entendit un grand bruit semblable à celui du tonnerre ou au roulement continu d'une voiture sur le pavé, et que ce bruit dura plusienrs minutes et fut sensible malgré celui de la chaise de poste qui rouloit alors sur la terre ; que l'heure étoit celle de midi trois quarts, et qu'il l'avoit aussitôt observé à sa montre, parce que cette vue l'avoit fort étonné. Il ajouta qu'en arrivant à Alençon, il avoit raconté ce fait dans la maison où il étoit descendu. Cela fut depuis confirmé à Biot, qui par la marche du globe de feu, par le bruit, et surtout par l'heure, jugea que c'étoit le commencement du météore de l'Aigle ; et depuis ce rapport plusieurs autres personnes assurèrent que le même globe de feu avoit été vu à Caen à la même heure, accompagné du même bruit.
+
+A Alençon, on avoit entendu parler vaguement de ce phénomène, mais on n'avoit rien vu, et aucun bruit extraordinaire ne s'étoit fait remarquer... à Sèez, petite ville, à dix lieues au sud-ouest de l'Aigle on avoit entendu le bruit d'un météore ; on en indiquoit précisément le jour, l'heure, et les diverses circonstances.
+
+En se rapprochant davantage de l'Aigle, le bruit de l'explosion s'étoit encore fait remarquer d'une manière bien plus frappante ; on le comparoit à celui d'un feu violent dans une cheminée, ou à celui d'une voiture roulant sur le pavé ; partout l'heure et le jour se trouvèrent semblablement indiqués, A Nonant, à Merleraut, à Sainte-Gauburge, et à l'Aigle, tout le monde avoit connaissance de la pluie de pierres tombée récemment dans le voisinage, et les circonstances en étoient racontées de la même manière. Des informations subséquentes apprirent que le globe de feu vu par le courrier de Brest s'étoit fait aussi remarquer à Caen, à Falaise, à Pont-Audemer, et aux environs de Verneuil.
+
+Du rapprochement de tous ces récits, il semble résulter évidemment les conséquences suivantes :
+
+1° Il y a eu aux environs de l'Aigle, le mardi 6 floréal an 11, vers une heure après midi, une explosion violente qui a duré pendant cinq ou six minutes, avec un roulement continuel ; cette explosion a été entendue à peu près de trente lieues à la ronde ;
+
+2° Quelques instants avant, il a paru dans l'air un globe lumineux animé d'un mouvement rapide ; ce globe n'a pas été observé à l'Aigle, mais il l'a été de plusieurs villes environnantes, et très-distantes les unes des autres ;
+
+3° L'explosion a été la suite de l'apparition d'un globe enflammé qui a éclaté dans l'air.
+
+Les recherches que Biot fit relativement à la chûte dont il est ici question, lui donnèrent enfin les résultats suivants, dont l'exactitude est devenue incontestable.
+
+Le jour indiqué ci-dessus, vers une heure après midi, le temps étant calme et serein, on aperçut de Caen, de Pont-Audemer et des environs d'Alençon, de Falaise et de Verneuil, un globe enflammé, d'un éclat très-brillant, qui se mouvoit dans l'atmosphère avec beaucoup de rapidité. Quelques instants après, on entendit à l'Aigle et autour de cette ville, dans un arrondissement de plus de trente lieues de rayon, une explosion violente, qui dura cinq ou six minutes, imitant trois ou quatre coups de canon, suivis d'une espèce de décharge, qui ressembloit à une fusillade. On entendit après comme un épouvantable roulement de tambour : l'air étoit tranquille et le ciel serein, à l'exception de quelques nuages, semblables à ceux que l'on voit fréquemment.
+
+Le bruit partoit d'un petit nuage qui avoit la forme d'un rectangle, et dont le plus grand côté étoit dirigé de l'est à l'ouest. Il parut immobile pendant tout le temps que dura ce phénomème, seulement les vapeurs qui le composoient, s'écartèrent momentanément de différents côtés, par l'effet des explosions successives.
+
+Ce nuage parut à peu près à une demi-lieue, au nord-ouest de l'Aigle ; il étoit très-élevé dans l'atmosphère, car les habitants de la Vassolerie et de Bois-la-ville, hameaux situés à plus d'une lieue de distance l'un de l'autre, l'observèrent en même temps au-dessus de leurs têtes. Dans tout le canton sur lequel ce nuage planoit, on entendit des sifflements semblables à ceux d'une pierre lancée par une fronde, et l'on vit en même temps tomber une multitude de masses solides exactement semblables à celles que l'on a désignées sous le nom de masses météoriques.
+
+L'arrondissement dans lequel ces masses ont été lancées, a pour limites le château du Fontenil, le hameau de la Vassolerie, et les villages de Saint-Pierre-de-Sommaire, Gloss, Couvain, Gauville, et Saint-Michel-de-Sommaire.
+
+C'est une étendue elliptique d'environ deux lieues et demie de long, sur à peu près une de large, la plus grande dimension étant dirigée du sud-est au nord-ouest par une déclinaison d'environ 22° : c'est la direction actuelle du méridien magnétique à l'Aigle.
+
+De cette série de faits parfaitement démontrés, Biot crut avec raison devoir conclure, 1° que le météore n'avoit pas éclaté en un seul instant, car dans ce cas les pierres eussent été lancées dans un espace circulaire ; mais que la durée du bruit annonçoit une suite d'explosions successives qui ont dû répandre les pierres sur une étendue allongée, dans le sens suivant lequel le météore marchoit, et que cet allongement indique la direction horizontale du météore ; 2° qu'on peut présumer que la vitesse horizontale du météore lorsqu'il a éclaté, étoit peu considérable, et que c'est probablement pour cela qu'on le croyoit tout-à-fait immobile ; ce qui n'empêche pas d'ailleurs qu'il ne pût avoir une très-grande vitesse dans le sens vertical, puisque la vitesse horizontale est la seule que ce genre d'observation puisse faire connoître.
+
+Les plus grosses pierres sont tombées à l'extrémité sud-est de l'ellipse, du côté du Fontenil et de la Vassolerie ; les plus petites sont tombées à l'autre extrémité, et les moyennes entre ces deux points-ci. Les plus grosses paroissoient être tombées les premières, d'après les considératiôns précédentes.
+
+La plus grosse des pierres qui aient été ramassées, pesoit huit kilogrammes soixante-cinq grammes (dix-sept livres et demie) ; la plus petite pesoit huit grammes (environ deux gros). On peut évaluer le nombre de toutes celles qui tombèrent dans cette circonstance, à deux milles à peu près.
+
+Les échantillons rapportés par Biot furent déposés par lui au Muséum d'histoire naturelle, et Thénard en ayant analysé quelques-uns, les trouva composés de
+
+Silice|0,46  
+Fer oxidé|0,45  
+Magnésie|0,10  
+Nickel|0,02  
+Soufre|0,05  
+Total|1,08
+
+Les 0,08 d'augmentation paroissent évidemment devoir être attribués à l'oxidation du fer pendant l'analyse. Ces résultats qui, comme on le voit, s'accordent bien avec ceux annoncés par Fourcroy, démontrent l'exactitude de ces deux analyses, dont la petite différence, dans les proportions, peut être attribuée au peu d'homogénéité des pierres météoriques, qui étant des agrégats, ne peuvent par-là même, donner constamment des produits semblables dans les proportions réciproques de léurs éléments. Depuis cette époque, Laugier a reconnu que le chrôme devoit être compté au nombre des principes constituants des pierres tombées à l'Aigle, ainsi qu'il le rapporte dans son Mémoire lu à l'Institut, le 10 mars 1806.
+
+De Drée a donné à l'Institut la description suivante des pierres tombées à l'Aigle. Il les compare à celles tombées à Sales en 1798, mais il observe que la pâte de celles de l'Aigle est en partie blanche et qu'on ne voit les globules gris que dans quelques parties. Une de ces pierres possédée par lui, est totalement recouverte de la croûte vitrifiée ; et la croûte extérieure et ancienne du bolide, antérieure à son explosion, s'y distingue, dit-il, par son épaisseur plus considérable, et parce qu'elle offre de grands plans ou de grands contours unis, tandis que l'autre, au contraire peu épaisse, n'a effacé aucune des petites aspérités ou irrégularités de la cassure. _Il prétend enfin avoir observé qu'on peut remarquer sur toutes celles dont l'ancienne croûte vitreuse est un peu considérable, ces singulières dépressions dont il sera fait mention dans la description des pierres tombées en Amérique en 1807, lesquelles représentent l'effet que produiroit la pression des doigts sur une masse molle._
+
+J'ignore comment de Drée a pu faire cette observation, n'ayant jamais rien reconnu de semblable sur aucune de celles des pierres tombées que j'ai eu occasion d'observer jusqu'à ce jour, même sur celles renfermées dans la collection de ce savant auteur. Ces pierres présentent bien quelque dépression, mais rien ne me semble devoir faire présumer qu'elles aient été dans un état de mollesse, et certes, elles ne l'étoient pas en tombant, car elles se seroient toujours écrasées ; ce qui n'est arrivé que lorsqu'elles sont tombées sur des rochers, ainsi qu'il arriveroit à une masse de marbre ou de grès dans la même circonstance.
+
+J'ai composé cette section, des deux seuls faits arrivés à Bénarès et à l'Aigle, parce que ce sont eux qui réellement ont fait admettre la chûte des pierres comme parfaitement démontrée, et que depuis eux elle a été regardée comme incontestable. Jusque-là les récits de ceux qui s'étoient occupés de ce phénomène n'avoient été reçus qu'avec dédain et écoutés avec mépris dans les Sociétés savantes. La chûte de pierres de Bénarès fut réellement la première à laquelle on osa paroître croire dans le monde savant, et ce fut la Société royale de Londres qui la première brava le préjugé. A l'Institut de France, on n'écouta Pictet qu'avec peine, et malgré la célébrité des Vauquelin, des Howard, et des Bournon, plusieurs membres se refusèrent encore à admettre l'évidence.
+
+La chûte de pierres annoncée à l'Aigle, ayant eu lieu à peu de distance de Paris, dans ce temps où les esprits partagés sur la réalité du phénomène arrivé à Bénarès, s'occupoient les uns à le démontrer, les autres à le combattre, fixa l'attention générale. Elle ne pouvoit arriver plus à propos ; et ne fut-ce que pour la nier, chacun voulut en connoître les détails. Le rapport de Biot intéressa donc singulièrement, et dut fixer pour jamais la doctrine des savants sur la réalité des faits qu'il constata de la manière la plus méthodique et la plus évidente.
+
+Nous conclurons du rapprochement des deux faits qui se trouvent consignés dans cette section, et de leur comparaison avec les autres desquels il a été antérieurement question,
+
+1° Que le phénomène de la chûte des pierres est incontestable ;
+
+2° Que les pierres ou autres masses qui tombent sur la terre, ont toutes des caractères communs ;
+
+3° Qu'elles ont toutes des éléments communs, quoique dans des proportions diverses et en nombre différent ;
+
+4° Que ces chûtes ont toujours été accompagnées d'une ou de plusieurs explosions violentes, et souvent de l'apparition d'un météore lumineux ;
+
+5° Que ces pierres sont tombées d'une grande hauteur, et avec une prodigieuse rapidité ;
+
+6° Qu'elles étoient toujours dures en tombant, quoique brûlantes ;
+
+7° Que leurs masses sont des agrégats informes, d'un volume variable, composés de plusieurs grains irréguliers de substances différentes, qui n'ont pas subi un degré de chaleur assez violent pour les faire entrer en fusion, ni même pour volatiliser le soufre qui entre dans la composition des sulfures métalliques disséminés dans ces masses ;
+
+8° Que leur surface extérieure a été comme torréfiée et fondue par une cause qui a agi violemment et instantanément sur elle, en sorte qu'elle se trouve convertie en une couche d'émail grossier, noire et très-mince.
+
+9° Et enfin que toutes les substances tombées, observées jusqu'à ce jour, renferment au nombre de leurs éléments, du nickel en petite proportion, uni à du fer métallique, en grains plus ou moins abondants, attirables par l'aimant.
+
+# Cinquième Section.
 
 ...
