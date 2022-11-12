@@ -28,6 +28,8 @@
 
 # [Cinquième Section.](#cinquième-section-1)
 
+# [Sixième Section.](#sixième-section-1)
+
 ---
 
 # Avis au Lecteur.
@@ -1575,5 +1577,7 @@ On trouve dans la Gazette de France, du mardi 2 juin 1812, l'article suivant, da
 Tels sont les faits parvenus jusqu'à ce moment à ma connoissance, ils sont en plus grand nombre que ceux renfermés dans les catalogues déjà donnés, et que j'ai cités dans cet ouvrage. Je ne vais plus y ajouter que la notice des principales masses de fer natif, qui par leur nature semblent devoir être rapportées à une même origine que les pierres tombées du ciel.
 
 Examinant ensuite succintement les opinions émises jusqu'à ce jour sur les causes d'un phénomène aussi remarquable, jé tâcherai d'analyser les faits les plus avérés, afin de mettre sur la voie qui doit par la suite conduire à une explication presque certaine.
+
+# Sixième Section.
 
 ...
