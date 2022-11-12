@@ -1500,4 +1500,80 @@ Il est à désirer que les savants examinent ce nouveau corps devenu leur domain
 
 Nous ne terminerons pas cette section sans ajouter la citation de quelques chûtes dont on trouve les relations dans la Gazette de France et dans le Moniteur. Ces relations me paroissent du nombre de celles sur lesquelles il est à désirer qu'on obtienne des détails plus circonstanciés : probablement l'avant-dernière, arrivée récemment près de Toulouse, servira à éclairer sur les phénomènes qui accompagnent ces évènements devenus presque journaliers, depuis que les savants s'accordent pour les observer.
 
+Le 8 juillet 1811, à huit heures du soir, le temps étant beau, et le ciel sans nuages, on entendit à Berlanguillas, sur la route d'Aranda à Roa, en Espagne, une détonation semblable à un fort coup de canon, suivie de trois autres pareilles, puis d'une quatrième qui dura environ une minute, et qui imitoit un feu de file de mousqueterie.
+
+Plusieurs paysans qui labouroient, restèrent immobiles d'épouvante, et peu d'instants après-entendirent encore un sifflement semblable à celui d'un boulet, et virent tomber quelque chose qu'ils ne purent distinguer, mais qui fit élever un tourbillon de poussière. Un chien qui étoit avec eux, courut et se mit à gratter autour ; ils y furent eux-mêmes, et trouvèrent à huit pouces de profondeur, une pierre brûlante, entourée d'une terre chaude et toute rougie.
+
+Deux ou trois autres pierres sont également tombées à une distance d'environ soixante pas. Les paysans ajoutérent qu'ils avoient vu dans l'air une ombre très-marquée, causée apparemment par la fumée de l'explosion.
+
+Ces détails ont été transmis par le général Dorsenne, à M. Cuvier.
+
+La première pierre elle-même a été envoyée à Paris, où elle existe entre les mains du célèbre Haüy, qui m'a permis de l'examiner. Elle est oblongue, très-irrégulièrement parallélipipède, semblable à un gros caillou peu roulé. Elle est revêtue de sa croûte noire ; n'offre de cassure que sur un petit endroit ; et là, elle paroît présenter le même grain et la même dûreté que celles de Charsonville. Elle est fort lourde, dure, et pèse environ deux à trois kilogrammes.
+
+Voici l'extrait d'une lettre de M. de Puymaurin, Membre du Corps législatif et de la Légion d'honneur, à M. le Sénateur Chaptal, comte de Chanteloup, Membre de l'Institut impérial, insérée dans le n° 127 du Moniteur, du 6 mai 1812.
+
+« Le 10 avril 1812, à huit heures six minutes, à Toulouse, l'air étant calme et la nuit très-obscure, l'atmosphère fut tout d'un coup éclairée par une lumière blanchâtre qui dura environ quinze secondes, et à la clarté de laquelle on pouvoit lire, mais qui disparut, quoique par degrés, assez rapidement. Deux minutes et demie après, une détonation considérable se fit entendre ; elle ressembloit à l'explosion d'une mine, et la commotion qui en fut la suite, parut si forte, que plusieurs personnes crurent avoir ressenti un tremblement de terre. A Gaillac et à Alby on crut que le magasin à poudre de Toulouse avoit sauté. Quelques minutes après cette explosion le ciel s'éclaircit et on put distinguer les étoiles. »
+
+« On apprit à Toulouse, deux jours après, qu'il étoit tombé des aérolithes à six lieues de cette ville, dans la commune de Burgau, département de la Haute-Garonne, et dans celle de Savenès, département de Tarn et Garonne. »
+
+« D'après le rapport de M. Filhol, médecin distingué, de Grenade, près de Burgau, et d'après celui du curé de Savenès, il paroît qu'on vit dans ces lieux une grande clarté permanente, blanchâtre, comme celle d'une fusée ; elle dura quatre ou cinq minutes. A la fin on entendit trois détonations semblables à des décharges d'artillerie. A ces détonations succéda une suite d'explosions imitant un feu roulant de coups de fusils ; elles durèrent quatre à cinq minutes, diminuèrent peu à peu, et furent suivies d'un bruit confus venant du nord-ouest. »
+
+« Quelques temps après on entendit dans l'air des sifflements de corps traversant l'atmosphère, comme des pierres lancées avec des frondes. Les détonations et le roulement avoit eu lieu du sud-ouest au nord-est. »
+
+« Le curé de Savenès me mande tenir tous ces détails de personnes véridiques qui se sont trouvées au milieu de toutes ces pierres sans en avoir reçu aucune éclaboussure. »
+
+« Ces pierres paroissoient venir du côté où la déflagration, les détonations, et le feu roulant avoient eu lieu. »
+
+« Plusieurs de ces aérolithes tombèrent à Pechmeja ; une passa dans la métairie du côté du bois, au sud-est ; d'autres se dirigèrent du côté du ruisseau, dans la direction du sud-ouest au nord-est. Une autre tomba quelques minutes après sur le bord de la vigne, près quelques paysans qui furent se cacher. Une pierre tomba sur la métairie, cassa les tuiles du toit, et arriva jusqu'à la latte qui les supportoit : elle y fit une forte dépression : en sorte qu'on l'y trouva le lendemain. Il en tomba deux à Pechmeja. A Peret, après le roulement, une autre tomba sur l'aire, et le métayer la ramassa le lendemain. Une tomba du côté de Gourdas, et plusieurs du côté du Seucourieu, se dirigeant toujours du nord-ouest au sud-est. Enfin une autre tomba à Las Pradère, près de Savenès ; et elle fut brisée par des enfants. »
+
+« Les différents échantillons envoyés à Toulouse, pèsent de six à huit onces ; ils ne sont pas entiers, et ont tous une partie de leur surface comme charbonneuse et noirâtre ; leur intérieur a l'apparence d'un grès grossier et ressemble à celui des pierres tombées à l'Aigle, mais il paroît contenir beaucoup plus de parties métalliques ; leur pesanteur spécifique est de 3,813. Il paroît que le nombre des aérolithes étoit très-considérable ; mais l'obscurité de la nuit et l'effroi des spectateurs n'ont pas permis de distinguer le lieu précis de leur chûte, et la hauteur des récoltes a empêché une recherche plus exacte. »
+
+« La distance la plus éloignée entre les différents lieux où ces pierres sont tombées, est de quatre mille toises. »
+
+« Le 10 avril, jour de la chûte de ces pierres, équinoxe ascendant ; le 11, périgée ; le 12, nouvelle lune. »
+
+« Le préfet de la Haute-Garonne a invité trois membres de l'Académie des sciences de Toulouse, à aller sur les lieux constater le fait, en examiner les différentes circonstances, et à en dresser leur rapport. » Cette lettre est datée de Toulouse, le 20 avril 1812.
+
+On trouve à l'appui de ce fait la relation suivante, dans le Journal de physique, tome 74, page 467.
+
+« M. le préfet de la Haute-Garonne avoit chargé une commission de vérifier les faits relatifs à l'explosion d'un météore, suivie d'une chûte de pierres atmosphériques, qui a eu lieu le 10 avril dernier dans le canton de Grenade et communes limitrophes. Cette commission fut composée de MM. Daubuisson, ingénieur en chef des mines du département, de Saget, membre de plusieurs Sociétés savantes, Marqué-Victor, professeur de physique, et Carney, professeur de mathématique au 3e régiment d'artillerie : tous quatre de l'Académie des sciences de Toulouse. Elle a fait un rapport détaillé, dont il résulte que la chûte des météorolithes en question a été précédée, accompagnée, et suivie des circonstances que voici : »
+
+« Le temps avoit été pluvieux jusqu'à deux heures après midi. A huit heures un quart du soir, le ciel étant en partie couvert de nuages, le temps calme et la nuit obscure, on aperçut une lueur semblable à un éclair très-fort. Cette lueur, qui dura de dix à quinze secondes, fut suivie de trois grands éclats à peu prés égaux entr'eux, qui se succédèrent presque immédiatement. Après ces éclats, que plusieurs personnes prirent pour la détonation de canons d'un fort calibre, on entendit un roulement qu'on n'a pu comparer qu'au bruit occasionné par le passage d'un grand nombre de voitures sur une chaussée pavée : ce roulement parut venir du nord-ouest et sembla se perdre dans le lointain vers le sud-est. »
+
+« On entendit ensuite des sifflements qu'on n'a pu mieux rendre que par le terme du pays, _bronzina_. Ces sifflements se terminèrent par la chûte de plusieurs corps. Entre le premier éclat et cette chûte, il s'écoula un temps que les rapporteurs estiment être de soixante-quinze à soixante-dix-huit secondes. Personne n'a pu apprendre si la forte lueur qui a été aperçue avoit été précédée de l'apparition d'un corps lumineux ; il est même probable que quand il en eût été ainsi, les nuages auroient empêché de l'apercevoir. »
+
+« Après différentes observations sur la chûte de plusieurs météorolithes, les rapporteurs donnent la description de cette espèce de pierre : Tous les météorolithes, disent-ils, se ressemblent parfaitement dans leurs caractères minéralogiques ; et si chacun d'eux ne formoit un tout distinct, on les prendroit pour des fragments de la même masse.* Ils consistent en une pâte pierreuse homogène, qui renferme un très-grand nombre de petits points de fer à l'état métallique et très-malléable : ils n'affectent aucune forme particulière ; mais leur surface ne présente que des angles et des arêtes arrondies ou émoussées (à peu près comme celle d'un corps qui auroit éprouvé un commencement de fusion). Cette surface est formée par une croûte mince semblable à un enduit superficiel ; cependant dans quelques endroits elle a une épaisseur sensible qui va jusqu'à un demi-millimètre. Elle paroit être le produit de la fusion, et porte quelques indices de vitrification : _elle est d'un noir un peu brunâtre_. »
+
+*) Cette assertion n'est pas toujours exacte, quoiqu'elle puisse être vraie, pour tous les météorolithes des environs de Toulouse, comparés entr'eux.
+
+« L'intérieur des météorolithes nouvellement cassés, est d'un _gris cendré clair_ qui se fonce et prend un grand nombre de taches d'ocre jaune, lorsqu'il reste quelques jours en contact avec l'atmosphère. »
+
+« La cassure est _grenue à gros grains_ et d'un tissu assez peu serré, comme celle de certains grès. »
+
+« Abstraction faite des points métalliques, elle est absolument _matte_, et d'aspect terreux. »
+
+« Ces météorolithes sont faciles à casser ; ils ont peu de consistance, et s'égrènent ou se pulvérisent aisément. Le choc qu'ils éprouvent en tombant, suffit souvent pour les casser. »
+
+« Ils sont _demi-durs_, approchant du tendre, c'est-à-dire, qu'ils ne rayent que légèrement le verre : la surface seule donne quelques étincelles par le choc du briquet. »
+
+« Ils ne happent pas à la langue et n'absorbent pas sensiblement l'eau dans laquelle on les plonge. »
+
+« La pesanteur spécifique des six échantillons essayés, a varié de 3,66 à 3,709. »
+
+« La grande quantité de grains de fer que renferment les météorolithes leur donne une action très-marquée sur le barreau aimanté ; mais ils n'ont point de polarité, et tous les échantillons ramassés présentés par divers points aux deux pôles du barreau, les ont toujours attirés et jamais repoussés.* »
+
+*) « Le barreau aimanté décèle encore la grande quantité de fer contenu, car les météorolithes réduits en poussière, sont presque entièrement enlevés par l'aimant, chaque grain de poussière renfermant quelque parcelle métallique ; mais si on pulvérise davantage, la partie pierreuse dégagée du métal n'est plus attirable. »
+
+« De légers fragments de météorolithes exposés à l'action du chalumeau, s'y sont recouverts d'une croûte noire et vernissée, à peu près semblable à celle qui couvre ces pierres dans leur état naturel. Les angles de ces fragments se sont fondus en émail noir. »
+
+« Les grains de fer que les météorolithes renferment, sont blancs et très-petits. On les distingue à peine à la vue simple, mais leur très-grande malléabilité rend leur présence sensible. Sitôt qu'une face est frottée ou rayée par un corps dur, ils s'applatissent, et l'endroit frotté ou rayé semble couvert d'un enduit luisant et métallique, à peu près pareil à celui que le frottement ou la raclure manifeste sur une plaque de plomb terne. Le poli rend ces poinfs encore plus sensibles. La face d'un météorolithe que nous avons fait passer sur la roue du lapidaire, présente un fond gris parsemé de petites taches métalliques, à peu près comme certains jaspes renfermant des dendrites d'argent. »
+
+On trouve dans la Gazette de France, du mardi 2 juin 1812, l'article suivant, daté de Carisruh, le 23 mai 1812.
+
+« Le 15 avril, à quatre heures du soir, on entendit à Helmstœdt, Magdebourg, et Ersleben, une explosion semblable à un fort coup de canon tire dans l'éloignement. Là où la détonation étoit la plus forte, un berger aperçut un trou profund nouvellement fait dans la terre. En y creusant il y trouva une pierre très-lourde de la grandeur d'une tête d'enfant. En l'examinant avec attention, on la reconnut pour une véritable aérolithe, qui diffère cependant, en certains points, de la plupart de celles décrites jusqu'à ce jour. »
+
+Tels sont les faits parvenus jusqu'à ce moment à ma connoissance, ils sont en plus grand nombre que ceux renfermés dans les catalogues déjà donnés, et que j'ai cités dans cet ouvrage. Je ne vais plus y ajouter que la notice des principales masses de fer natif, qui par leur nature semblent devoir être rapportées à une même origine que les pierres tombées du ciel.
+
+Examinant ensuite succintement les opinions émises jusqu'à ce jour sur les causes d'un phénomène aussi remarquable, jé tâcherai d'analyser les faits les plus avérés, afin de mettre sur la voie qui doit par la suite conduire à une explication presque certaine.
+
 ...
