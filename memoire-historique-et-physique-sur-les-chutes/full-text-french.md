@@ -1262,4 +1262,74 @@ C'est ce qui fut fait dans la suite par le comte d'Unin, possesseur d'un très-b
 
 Cette pierre est tendre, friable sous les doigts, ne raye point le verre, et ne donne point d'étincelles au briquet ; sa pesanteur est de 3,19.
 
+Elle se fond difficilement au chalumeau en un verre opaque attirable à l'aimant. En un mot cette aérolithe ne paroît différer extérieurement des autres que par la plus petite quantité de substances métalliques qu'elle contient, et malgré l'analogie que le célèbre Klaproth trouva entre ses principes constituants et ceux du basalte, il n'en est pas moins constant que ces deux substances different essentiellement par la cassure, la dureté, et la raclure.
+
+Ces différences sont encore confirmées par les autres descriptions. D'après Vauquelin, cette aérolithe ressemble par ses caractères extérieurs aux autres productions de cette espèce ; elle est recouverte à l'extérieur d'un enduit ou vernis brun vitreux ; intérieurement elle présente une matière grise parsemée de points noirs, dans laquelle on découvre dans plusieurs endroits des lames brillantes qui paroissent être de la pyrite, car elles ne sont point attirables à l'aimant, et la pierre elle-même n'agit pas sur l'aiguille aimantée. Enfin cette substance n'est point homogène, et on y découvre à l'œil nud, des noyaux assez considérables qui sont beaucoup plus noirs que le reste de la pierre.
+
+L'analyse qui en fut faite par Mozer, chimiste de Vienne, lui fit reconnoître qu'elle étoit composée de
+
+Silice|46,25  
+Alumine|7,12  
+Fer oxidé|27,00  
+Chaux|12,13  
+Magnésie|2,50  
+Total|95,00  
+
+à quoi il ajouta tant pour le soufre et l'eau volatilisés que pour la perte pendant l'analyse, 5,00, et crut reconnoître une quantité
+indéterminée de chrôme.
+
+Ces résultats présentant une grande différence entre cette aérolithe et les autres déjà analysées, Vauquelin se détermina à l'examiner de nouveau ; et c'est au travail de ce laborieux chimiste dont tout le monde reconnoît le talent et l'exactitude, que nous devons l'analyse suivante.
+
+Sur cent parties, l'aérolithe de Staunern contient
+
+Silice|0,50  
+Chaux|0,12  
+Alumine|0,09  
+Oxide de fer|0,29  
+Oxide de manganèse|0,01  
+Total|1,01
+
+et une trace de nickel, qui peut être évaluée à un 0,001, avec un atome de soufre. L'augmentation de plus d'un centième, qui eut lieu dans cette analyse, est avec raison attribuée par son auteur, à l'oxidation du fer.
+
+Ce résultat diffère principalement de celui de Mozer, en ce que Vauquelin n'a trouvé ni chrôme, ni magnésie, mais qu'il a reconnu la présence du nickel et un centième d'oxide de manganèse. Il n'en est pas moins constant que par sa composition, l'aérolithe tombée à Staunern diffère essentiellement des autres connues, 1° en ce qu'elle ne renferme point de fer à l'état métallique, mais à celui d'oxide ; 2° parce qu'elle ne renferme ni magnésie, ni chrôme ; 3° parce qu'elle renferme une très-grande portion d'alumine, dont les autres n'ont offert que quelques traces ; et 4° en ce qu'elle renferme une quantité de chaux bien plus grande que toutes les autres précédemment analysées.
+
+Les caractères extérieurs de cette aérolithe et les relations de sa chûte semblent cependant démontrer évidemment que, quoique d'espèce différente, elle est de même origine que les autres pierres tombées sur la terre.
+
+Dans cette même année 1808, il tomba, le 3 septembre, plusieurs pierres près de Lissa, à quatre milles, ouest-nord-ouest, de Prague. Reuss donna un Mémoire sur ce phénomène, et le célèbre Klaproth publia l'analyse d'un fragment d'une de ces pierres, qui lui avoit été envoyé par Reuss lui-même. Tassaert fit imprimer dans le tome 74 des Annales de chimie, un extrait des Mémoires de ces deux savants, d'où il résulte que les pierres tombèrent dans une plaine qui s'étend au sud jusqu'à la rive de l'Elbe, sur un terrein sablonneux très-meuble et fraîchement labouré, dans lequel elles ne s'enfoncèrent cependant que de quatre à cinq pouces. On reconnut qu'il éloit tombé quatre pierres dont la plus grosse pesoit cinq livres neuf onces et demie lorsqu'elle fut pesée, quoiqu'elle eût déjà été endommagée sur ses angles et ses arêtes : il paroît que la direction dans laquelle ces pierres sont tombées, étoit du nord au midi.
+
+« Les circonstances qui accompagnèrent cette chûte de pierres, furent presque les mêmes que celles remarquées dans les autres endroits. Le samedi 3 septembre 1803, à trois heures et demie de l'après-midi, on entendit une forte détonation, qui fut comparée à la décharge de plusieurs pièces d'artillerie, à laquelle succéda un bruit analogue à celui produit par un feu de peloton ou par un roulement de tambours. Ce bruit dura un quart-d'heure ou même une petite demi-heure ; le ciel qui avoit été très-clair, parut couvert comme d'une gaze légère, cependant les rayons solaires pénétroient à travers cette espèce de léger brouillard. »
+
+Il est dit à la suite de cette relation que personne ne vit tomber ces pierres, mais que des faucheurs en ayant ramassé une aussitôt qu'elle fut tombée, la trouvèrent aussi froide que les pierres environnantes ; ce qui n'est nullement étonnant, car si personne ne les vit tomber, comment peut-on savoir que celle ramassée par des faucheurs, le fut aussitôt après sa chûte. Les caractères de ces pierres et leur analyse étant cependant conformes à ceux des autres aérolithes, leur chûte n'en paroît pas moins bien constatée ; mais il est à regretter que ceux qui ont recueilli les circonstances de ce phénomène, les aient rassemblées d'une manière aussi incorrecte.
+
+Les pierres tombées près Lissa, ne tachoient point les doigts ; aucune d'elles ne répandoit d'odeur sulfureuse, quand elles furent ramassées, ce qui tenoit à leur refroidissement qui eut certainement lieu en peu de temps, à cause de la petitesse de leur volume. Personne ne remarqua que leur chûte ait été accompagnée d'éclair ou de météore lumineux, non plus que de pluie, de vent, ou de quelque indice d'électricité dans l'atmosphère.
+
+Ces aérolithes sont un agrégat, comme toutes les autres subtsances pierreuses de même origine : leur couleur est gris de cendre pâle, leur grain est fin ; elles sont traversées dans tous les sens par de petites veines, et sont parsemées de petits globules disséminés dans leur pâte ; leur pesanteur spécifique est de 3,560. Les portions globuleuses peuvent être séparées de la pierre réduite en poussière, à l'aide du barreau aimanté, et la masse elle-même de la pierre fait varier fortement l'aiguille aimantée ; ce qui prouve que comme toutes les autres pierres du même genre, elle renferme des particules ferrugineuses à l'état métallique.
+
+Klaproth ayant analysé un fragment d'une des pierres tombées près de Lissa, reconnut qu'il étoit formé de
+
+Fer à l'état métallique|0,2900  
+Nickel|0,0050  
+Manganèse|0,0025  
+Silice|0,4300  
+Magnésie|0,2200  
+Alumine|0,0125  
+Chaux|0,0050  
+Total|0,9650
+
+et il lui resta pour le soufre et pour la perte 0,0350.
+
+Ce célèbre chimiste supposa que tout le fer étoit ici à l'état métallique, quoiqu'avant cette analyse on ne regardât comme tel que celui que séparoit le barreau aimanté, et qu'on crût que le reste étoit combiné à l'état d'oxide, mais il observe à ce sujet que les aérolithes de Lissa, ne présentent aucune trace d'oxidation, et que ceux des points brillants qu'elles renferment, qui ne s'attachent point à l'aiguille aimantée, sont évidemment de la pyrite, dans laquelle le fer est combiné à l'état métallique.
+
+Le même auteur tire de cette analyse, des conclusions très-importantes : « C'est, dit-il, sur l'absence totale de l'oxigène, que s'appuie l'hypothèse de Proust, qui dit que les aérolithes sont des produits de notre globe terrestre, qui appartiennent aux contrées des pôles, dont elles sont arrachées et lancées en l'air pour retomber dans les parties méridionales. »
+
+Cette circonstance, si elle étoit constante, pourroit cependant tout aussi bien favoriser l'opinion des personnes qui veulent que les aérolithes aient été lancées de la lune, puisqu'on sait que quelques astronomes refusent à cet astre une atmosphère contenant de l'oxigène et saturée de vapeurs d'eau, comme est celle de notre globe.
+
+Mais il est certain que l'absence totale de ce principe, ne fut-elle qu'une fois démontrée, réfuteroit complètement l'opinion de ceux qui croyeat que la formation des aérolithes se fait au milieu des régions de notre atmosphère terrestre, vu que les molécules de fer et de pytite martiale se trouvant divisées dans l'air, ne résisteroient pas à l'oxidation même pendant un temps d'aussi peu de durée.
+
+Une autre pierre est tombée dans les parages des Etats-Unis de l'Amérique septentrionale ; le capitaine Bennet P. Gastewood en a transmis aux éditeurs de la Gazette Américaine de Rhode-Island, le rapport suivant :
+
+« Le 17 juin 1809, nous cinglions E. S. E. par un vent du nord assez fort ; le ciel étoit très-couvert et orageux, il pleuvoit, et on voyoit de temps en temps des éclairs très-vifs suivis d'un tonnerre bruyant, la mer étoit grosse. A onze heures du soir on entendit un bruit extraordinaire à l'arrière du vaisseau, à deux reprises très-distinctes ; il ressembloit un peu à un coup de pistolet. Peu de minutes après les nuages se dissipèrent au zénith, sous la forme d'un arc-en-ciel, et à l'instant une pierre tomba sur le pont, et on en entendit d'autres tomber dans l'eau, à bas bord, à une distance d'à peu près douze pieds seulement. Cinq à six minutes après l'arc-en-ciel descendit à d'horizon. »
+
+« Je présume, d'après la quantité de ces pierrés que j'entendis tomber dans l'eau, que le navire et l'équipage auroient réellement soufferts si elles fussent tombées sur nous. »
+
 ...
