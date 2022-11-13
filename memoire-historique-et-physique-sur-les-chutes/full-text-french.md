@@ -32,7 +32,7 @@
 
 # [Premier Appendice. Catalogue chronologique des Chûtes de Pierres](#premier-appendice-catalogue-chronologique-des-chûtes-de-pierres-1)
 
-# [Second Appendice.](#second-appendice-1)
+# [Second Appendice. Description comparative de quelques pierres tombées du ciel.](#second-appendice-1)
 
 ---
 
@@ -1815,4 +1815,4 @@ Je ne classe cependant point ce phénomène parmi ceux dont vraisemblablement le
 
 ...
 
-# Second Appendice.
+# Second Appendice. Description comparative de quelques pierres tombées du ciel.
