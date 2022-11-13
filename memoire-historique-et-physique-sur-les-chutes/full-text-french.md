@@ -1582,6 +1582,113 @@ Examinant ensuite succintement les opinions émises jusqu'à ce jour sur les cau
 
 # Sixième Section.
 
+Outre les chûtes de pierres, dont je viens précédemment de déterminer les époques, il en est d'autres qui sont avérées par la nature de certaines masses minérales que nous possédons sans en connoître l'origine, mais qui par leur isolement, leur analogie avec tous les corps tombés que nous connoissons, et leur différence avec les minéraux que nous retrouvons en place à la surface du globe, doivent évidemment être rapprochées des aérolithes et paroissent devoir être rapportées comme elles à une origine extra-terrestre. Les réflexions sur diverses masses de fer natif, publiées en Allemagne en 1794, par le savant professeur Chladni, ont démontré cette assertion d'une manière positive.
+
+Quelquefois ces substances que l'on assuroit être tombées sans en déterminer l'époque précise, étoient de la nature du fer natif, comme le morceau qui, d'après Jules-César Scaliger, étoit tombé du ciel, dans la Savoie ; et d'autres fois ces masses étoient de nature pierreuse analogue à la plupart des masses de ce genre que nous avons vues tomber dans ces derniers temps.
+
+C'est ainsi que parmi les minéraux renfermés dans la superbe collection de M. de Drée, se trouve un fragment d'une pierre présumée tombée de l'atmosphère, qui pesoit environ sept livres : il lui fut donné par M. de Roissy, et faisoit partie de la collection de feu M. de Trudaine à Montigny.
+
+Ses caractères extérieurs sont les mêmes que ceux des autres pierres atmosphériques, et particulièrement que ceux des pierres tombées à Sales ; aussi, quoique l'on ignore le lieu dans lequel arriva sa chûte, il n'est pas permis de douter de son origine.
+
+La partie grise de la pâte est tout-à-fait analogue à celle de la pierre d'Ensisheim, à l'exception de la contexture fissile qui n'existe guère dans celle-ci, et elle est encore enveloppée aux trois quarts dans sa croûte vitreuse.
+
+Plusieurs autres pierres tombées du ciel sont probablement renfermées dans diverses collections, mais leur existence quoique pouvant fare présumer un plus grand nombre de chûtes que celles dont les historiens ont fait mention, nue peut cependant pas être regardée comme une preuve évidente, car souvent il est tombé un grand nombre de pierres à la fois, et beaucoup d'entr'elles doivent avoir été ramassées par les curieux, et conservées dans les collections de ceux même qui regardant leur chûte comme fabuleuse, attachoient peu d'importance aux étiquettes destinées à attester leur véritable origine.
+
+Il est aussi, parmi les masses minérales isolées qui ont été remarquées par les naturalistes, plusieurs blocs de fer métallique que souvent l'opinion des peuples voisins a indiqués comme tombés du ciel. Ces diverses inasses ont été remarquées par des voyageurs instruits et dignes de foi, qui en ont même rapporté des échantillons dans les principales collections de l'Europe.
+
+Leur nature différente de celle de tous les minéraux qui se trouvent en place à la surtace du globe, et leur analogie avec certaines masses évidemment tombées de l'atmosphère, doivent nous les faire considérer comme de même origine. Ainsi nous citerons ici comme telle, la fameuse masse de fer natif que le savant Pallas visita dans la Sibérie, où elle avoit été trouvée sur la cime d'une haute montagne, proche l'Enisseï, et entre l'Oubeï et le Sisim.
+
+Le cosaque qui en fit la découverte, étoit forgeron. Il la trouva isolée, sur la cime d'une montagne schisteuse, où elle étoit tout à découvert, sur la surface du sol : elle ne tenoit à rien, et on ne remarquoit autour d'elle ni roches, ni cailloux. Il assura au docteur Pallas, que quoique passionné pour la chasse et en quelque sorte habitué à mener une vie errante, il n'avoit rencontré dans ses courses, ni dans cette montagne, ni dans celles qui sont en face, aucunes traces de fonderie ou scories. Il ajouta que le pliant et la blancheur du fer dans l'intérieur de la masse, ainsi que le son qu'il rendoit par le choc, l'avoit porté à croire que c'étoit un métal plus fin ; ce qui, joint à la croyance que les Tartares avoient que ce bloc étoit sacré et sans doute lancé des cieux, l'avoit fortifié dans cette idée. Aussi voyant qu'on n'entreprenoit pas d'exploitation en règle dans la place où cette masse étoit, il avoit pris le parti de l'enlever et de la transporter dans son habitation. Par la suite on fit l'essai de quelques-uns de ses fragments détachés avec peine, et on reconnut qu'elle étoit composée d'un fer natif très-doux, formé en drûse sans le secours de l'art ; ce qui la fit transporter à Krasnojarck.
+
+Le poids de ce bloc étoit de quarante-deux ponds (ou environ 700 kilogrammes). Il étoit revêtu d'une croûte rude et ferrugineuse, qui en fut presque totalement enlevée à coups de maillet. Le reste de la masse est un fer doux, blanc dans ses brisures, mais plein de trous comme une éponge grossière. Ces trous sont remplis de grains vitreux, souvent de couleur d'hyacinthe très-pure, parfaitement transparente, et ayant l'apparence de l'ambre.
+
+La surface de cette substance est ordinairement arrondie et très-lisse, mais quelquefois on y aperçoit deux ou trois facettes plates, dont les extrémités se trouvent toujours arrondies ou tenant à d'autres grains. Ces grains vitreux sont de la grosseur d'un grain de chènevis, ou de celle d'un gros pois ou même plus ; leur couleur varie entre le jaune, le brun, et le vert. Ils présentent dans toute la masse un aspect uniforme ; on n'y remarque aucune trace de scories ; et Pallas dit qu'on ne s'aperçoit point qu'aucun feu artificiel ait agi sur eux.
+
+Le fer en est tellement tenace que plusieurs forgerons ont eu beaucoup de peine à en détacher avec des coins d'acier et des marteaux de forge, un fragment qui pesoit tout au plus un kilogramme, et que l'on ne parvint qu'une seule fois à en tirer un morceau qui pesoit environ un pond, lequel fut envoyé à l'Académie impériale de Saint-Pétersbourg.
+
+Les fragments de la substance pierreuse que renferme cette masse, sont assez durs pour rayer le verre ordinaire, et donnent une grande quantité de fer par l'analyse chimique. Le fer natif qui les accompagne est susceptible d'être forgé, et on en a fabriqué divers petits ouvrages ; mais il ne se travaille bien qu'à un feu modéré, et à un feu de forge il devient aigre et cassant. A froid, il se forge et se plie facilement, et même présente une grande ténacité.
+
+Ce fer est enduit d'une espèce de vernis vitreux qui le garantit de la rouille ; mais quand cette surface est brisée par le choc du marteau, il se rouille très-facilement. En un mot tous les caractères de cette énorme masse de fer prouvèrent au docteur Pallas qu'elle n'étoit point un produit des arts, mais qu'elle est sortie de l'atelier de la nature.
+
+Je crois devoir joindre à ce rapport de Pallas, la description minéralogique que le comte de Bournon nous a donnée de deux échantillons de ce fer, renfermés dans la la belle collection de Gréville, et les analyses qui en furent faites par les savants Howard et Klaproth.
+
+Un de ces morceaux, rapporte Bournon, a une texture cellulaire et ramifiée, analogue à celle de quelques scories volcaniques très-poreuses et légères : c'est la texture ordinaire des échantillons de cette espèce de fer qui sont conservés dans les différentes collections minéralogiques. Quand on les examine avec attention on peut y apercevoir non-seulement des cellules vides, mais aussi des impressions ou cavités d'une plus ou moins grande profondeur, quelquefois parfaitement rondes, qui paroissent évidemment être le résultat de la compression d'un corps dur jadis situé dedans, lequel en en sortant a laissé la surface de ces cavités entièrement unie et avec le lustre d'un métal poli. Dans quelques-unes de ces cavités, il reste une substance transparente d'un vert jaunâtre, qui est bien plus abondante dans le second échantillon.
+
+Le fer du premier échantillon est très-malléable ; il peut aisément se couper avec le couteau, et s'applatir ou s'étendre sous le marteau ; sa pesanteur spécifique est de 6,487.
+
+Le second échantillon présente un aspect différent du précédent ; sa plus grande partie forme une masse solide compacte, dans laquelle on n'aperçoit pas la plus petite apparence de pores ou de cavités ; mais une partie de sa surface présente une texture ramifiée ou cellulaire semblable à tous égards à celle de l'échantillon déjà décrit.
+
+Cette masse n'est qu'un fer cellulaire, dont toutes les cavités sont parfaitement remplies par la substance vitreuse qui ne se rencontre que dans quelques-unes des cavités de l'échantillon précédemment décrit.
+
+Cette substance vitreuse d'un vert jaunâtre paroît, quant à son aspect, avoir quelque analogie avec le péridot. Elle est informe, toujours plus ou moins transparente, assez dure pour rayer le verre, mais non pour rayer le quartz, et elle est très-fragile. Sa cassure est conchoïde, indifféremment dans toutes les directions. Enfin elle est électrique par le frottement, jouit d'une pesanteur variable de 3,263, à 3,300, et est très-réfractaire.
+
+Howard a fait séparément les analyses du fer natif de Sibérie, et de la substance pierreuse que ses cavités renferment. Il a reconnu que le premier étoit un fer métallique allié à 0,17 de nickel. Quant à la substance pierreuse à laquelle il trouve quelque analogie avec la substance globuleuse que renferment les pierres tombées à Bénarès, il a reconnu qu'elle étoit composée de
+
+Silice|0,54  
+Magnésie|0,27  
+Oxide de fer|0,17  
+Oxide de nickel|0,01  
+Total|0,99
+
+à quoi on doit ajouter 0,01 pour la perte pendant l'analyse.
+
+Klaproth a répété la même analyse et a trouvé des proportions un peu différentes, car il a indiqué pour principes constituants du fer,
+
+Fer|98,50  
+Nickel|1,50  
+Total|100,00
+
+et pour composants de la substance pierreuse
+
+Silice|0,410  
+Magnésie|0,385  
+Oxide de fer attirable à l'aimant|0,185  
+Total|0,980
+
+en sorte que la perte a été de 0,020.
+
+Il est évident d'après ces analyses qu'il y a une très-grande analogie entre les éléments de la masse observée en Sibérie par le docteur Pallas, et ceux qui constituent les pierres qu'une multitude de témoignages irrécusables nous démontrent être tombées de l'atmosphère. On peut donc raisonnablement présumer que cette masse, qui d'ailleurs n'a aucune analogie avec celles que nous rencontrons en place sur la surface de la terre, est de même origine que celles que nous voyons tomber journellement de l'atmosphère.
+
+Les mêmes raisonnements pourront s'appliquer à quelques autres masses isolées de même nature, découvertes par plusieurs savants voyageurs sur divers points de la surface du globe.
+
+L'une des plus remarquables parmi ces dernières, est sans contredit l'énorme bloc de fer natif que les Indiens de la juridiction de Sant-Iago-del-Estero, découvrirent en parcourant la province du Grand-Chaco-Gualamba, dans l'Amérique méridionale, sur la fin du siècle dernier.
+
+On trouve l'histoire de sa découverte dans les Transactions philosophiques de la Société royale de Londres pour l'année 1788.
+
+Cette découverte étoit d'autant plus singulière qu'on ne rencontre pas de montagnes de ce côté, et que dans une étendue de cent lieues de circonférence, à peine trouve-t-on une pierre. Ce fait paroissoit cependant constant, et la couleur du métal faisant présumer à quelques personnes que ce pouvoit être de l'argent, elles s'y transportèrent dans l'espoir de s'enrichir.
+
+Le vice-roi del Rio-de-la-Plata, présumant que cette masse enfouie dans la terre et présentant trois verges du nord au sud, deux verges et demie de l'est à l'ouest, et une demi-verge d'épaisseur, pouvoit être la crête d'un filon important, résolut de l'envoyer examiner, et même d'établir une colonie dans le voisinage, si son exploitation étoit avantageuse.
+
+En conséquence don Michel-Rubin de Celis fut chargé de cette mission, et partit bien accompagné de Rio-Salado, le 3 février 1783. Après avoir parcouru un espace de soixante-dix lieues et être arrivé aux 27° ou 28° de latitude sud, il trouva, le 15 février 1783, la masse objet de ses recherches, dans un lieu nommé Otumpa, où elle étoit à moitié enfouie dans un sol crayeux, au milieu d'une plaine de plus de cent lieues d'étendue, sans qu'aucun bois et aucune eau aient pu permettre de supposer une exploitation ancienne au milieu de ce vaste désert inhabité et inhabitable. Elle étoit en grande partie enfouie dans de l'argile. Sa surface extérieure étoit très-compacte, mais en ayant enlevé quelques morceaux, Celis vit que son intérieur étoit plein de cavités, comme si la masse enfière avoit été originairement en état de liquidité. Il eut beaucoup de peine à en détacher vingt-cinq ou trente morceaux, et mit pour y parvenir, un grand nombre de ciseaux hors d'état servir.
+
+Ayant fait enlever la terre qui la couvroit, il reconnut qu'au-dessous du niveau du sol, la masse ferrugineuse étoit revêtue d'une couche d'oxide, qui pouvoit avoir environ six pouces d'épaisseur, et que le reste du sol étoit de l'argile.
+
+Don Celis ayant cherché à reconnoître l'origine de cette masse isolée au milieu d'une plaine de cent lieues de circonférence, sans eau ni pierre, vit qu'elle ne pouvoit avoir été produite dans l'endroit où on l'avoit rencontrée par aucune des opérations connues de la nature, et qu'elle n'avoit pu y être apportée par les hommes : ce qui lui fit présumer qu'elle avoit été lancée par une explosion volcanique : opinion qui malgré son invraisemblance, devoit prévaloir à cette époque sur celle d'une origine extra-terrestre.
+
+Don Celis reconnut encore dans les immenses forêts qui recouvrent d'autres parties de ce pays, une autre masse ferrugineuse, qui par sa figure approchoit de celle d'un arbre ; il en enleva quelques morceaux, et il présuma également que ce bloc singulier avoit aussi une origine volcanique.
+
+La masse observée à Otumpa, parut devoir peser environ trois cents quintaux (ou plus de mille trois cent soixante-trois myriagrammes), en lui supposant une pesanteur spécifique un peu plus grande que celle du fer.
+
+Proust en ayant examiné des morceaux, reconnut que le fer qui les formoit ressembloit assez à certain argent natif, pour lequel on l'a pris. Il est très-ductile, ne se rouille point comme le fer ordinaire, et se comporte à la lime à peu près comme lui.
+
+Les directeurs du Musée britannique possédant quelques fragments de cette masse, qui avoient été envoyés par don Rubin de Celis lui-même, les confièrent pour en faire l'analyse, au savant Edward-Howard, qui reconnut qu'ils étoient formés de 90 de fer et 10 de nickel, et par là se trouva d'accord avec Proust relativement à ses principes constituants.
+
+Le comte de Bournon voulant essayer les qualités de ce fer, reconnut, après l'avoir fait rougir, qu'il conservoit sa malléabilité dans cet état, comme le font les fers natifs de Bohême et du Sénégal, desquels nous allons parler, en observant aussi que la masse de fer décrite par don Celis est trouée, qu'elle offre des concavités et paroît avoir été dans un état de mollesse ou de chaleur suante, pendant lequel elle a reçu diverses impressions.
+
+D'autres parties de l'Amérique renferment des masses de fer natif isolées, qui paroissent de même nature et de même origine que celle découverte à Otumpa. Ainsi le célèbre voyageur Humboldt rapporte qu'on trouve diverses masses de ce genre éparses dans les champs du Mexique. On en a observé près de Toluca, à Zacatécas, à Chaccas, et à Durango. Il en remit à Klaproth un fragment qu'il avoit détaché d'une de ces masses, trouvée à Durango en Mexico, au milieu d'une plaine très-étendue.
+
+Ce fragment donna à l'analyse 96,75 de fer métallique, et 3,25 de nickel.
+
+Une autre masse de fer malléable du même genre et du poids de quatre-vingt-dix-sept miryagrammes, fut trouvée par Sonneschmidt, dans la ville de Zacatécas, dans la nouvelle Espagne.
+
+Nous venons de citer des masses de fer natif découvertes en Asie et en Amérique ; l'Afrique en renferme également ; ainsi Smithson-Tennant, savant chimiste anglais, trouva dans une aérolithe de six pouces de long, sur quatre pouces et demi de large, et deux d'épaisseur, qui étoit tombée des nuages au Cap de Bonne-Espérance, dix parties de fer contre une de Nickel, unie en outre à un peu de graphite ou carbure de fer ; et antérieurement à cette époque, le célèbre Adanson avoit visité dans le Sénégal des masses de fer natif que les Maures exploitent pour leur usage. Wallerius, qui en avoit vu quelques fragments, crut y reconnoître des formes cubiques, et indique ce fer, dans le 2e volume de sa Minéralogie, sous le nom de _Ferreum nativum cubicum_ ; et il ajoute : _Reperitur ad Senegal in Africâ, ubi à Mauritanis plurima ab hoc ferro rudi conficiuntur vasa_.
+
+Romé de l'Isle possédoit un échantillon de ce fer, qui, dit-il, ne s'étoit trouvé qu'en masses irrégulières plus ou moins considérables. Il a toutes les propriétés du fer forgé le plus dur, telles que la ductilité et la malléabilité, _etc._ ; et à l'époque où il écrivoit son Catalogue, on supposoit généralement à ce fer une origine volcanique.
+
+Depuis cette époque le savant Edward-Howard eut occasion de l'examiner de nouveau, et soumettant à l'analyse chimique un fragment de fer natif du Sénégal, rapporté par le général O-Hara, reconnut qu'il étoit formé de 0,94 à 0,95 de fer unis à 0,05 ou 0,06 de nickel ; ce qui lui prouva qu'il étoit composé d'une manière analogue aux autres masses de fer tombées de l'atmosphère, et à celles auxquelles on a présumé une même origine. Au surplus on s'accorde à croire que la masse de fer natif qui existe eur les bords du Sénégal, est d'une grandeur énorme. Si elle doit être regardée comme une aérolithe, c'est certainement la plus grande connue.
+
+L'Europe renferme aussi des masses de fer natif auxquelles on doit supposer la même origine. On connoît non-seulement dans ce cas, les aérolithes tombées du côté d'Agram, mais encore le savant et ingénieux Chladni a considéré comme analogue, une masse de fer natif découverte en Saxe, et pesant 16 à 17 milliers (à peu près 800 myriagrammes) ; laquelle se rapproche de la nature de l'acier anglais, qu'elle égale par ses qualités. On la trouva il y a quelques années, en creusant sous le pavé d'Aken, près de Magdebourg.
+
 ...
 
 # Premier Appendice. Catalogue chronologique des Chûtes de Pierres.
