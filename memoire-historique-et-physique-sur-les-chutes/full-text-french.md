@@ -1815,6 +1815,130 @@ Je ne classe cependant point ce phénomène parmi ceux dont vraisemblablement le
 
 # Premier Appendice. Catalogue chronologique des Chûtes de Pierres.
 
+1451\. Av. J. C. Pluie de Pierres à Gabaon : _Moïse_.  
+--- Pierre adorée sous le nom de Mère des Dieux, de Cybèle, d'Elagabale et de Jupiter-Ammon.  
+--- Pierres conservées à Delphes : _Pline_.  
+654\. Pluies de pierres sur le mont Albain : _T.-Live_.  
+644\. Pierres tombées en Chine : _de Guigne_.  
+520\. Pierre tombée en Crète : _dom Calmet_.  
+467\. Pierres tombées en Thrace, à Cassandrie, à Abydos : _Pline_.  
+461\. Pierre tombée près d'Ancône : _Valère-Max_.  
+343\. Pluie de pierres près de Rome : _Jul. Obseq._  
+211, 192 et 89. Pierres tombées en Chine : _de Guig._  
+52\. Pluie de fer en Lucanie : _Pline_.  
+46\. Pluie de pierres à Acilla : _César_.  
+38\. Pierres tombées en Chine : _de Guigne_.  
+29\. Pierres tombées à Pô en Chine : _idem._  
+29\. Pierres tombées à Tchin-Tong-Fou : _idem._  
+22 et 19. Pierres tombées en Chine : _idem._  
+15\. Etoile tombant en forme de pluie : _de Guigne._  
+12\. Pierre tombée à Toukouan : _idem._  
+9\. Autre tombée en Chine : _idem._  
+6\. Pierre tombée à Ning-Tcheou : _idem._  
+6\. Autres tombées à Yu : _idem._  
+--- Pierre vue dans le pays des Vocontins : _Pline_.  
+452\. D. J. C. Pierres tombées en Thrace : _A. Marc._  
+6\.e siècle. Pierre tombée sur le mont Liban : _Photius_.  
+742\. Pluie de poussière près Edesse : _Quatremére_.  
+823\. Pluie de pierres en Saxe : _B. de S. Amable._  
+852\. Pierre tombée dans le Tebarestan : _Quatremère_.  
+898 à 899. Pierre tombée à Ahmed-Dad : _idem._  
+930 à 931. Sable rouge tombé près Bagdad : _idem._  
+965 à 971. Pierre tombée en Italie : _Platine_.  
+--- Pierre tombée à Lurgea, à Cordova : _Avieenne_.  
+--- Masse de fer tombée dans le Djordjan : _idem._  
+998\. Pierres tombées près Magdebourg : _Spangenb._  
+1071\. Boules de terres tombées dans l'Irak : _Quatrem._  
+1136\. Pierre tombée à Oldisleben : _Spangenberg._  
+1164\. Fer tombé en Misnie : _Georg. Fabric._  
+1198\. Pierres tombées près Paris : _Henri Sauval._  
+1249\. Pierres tombées près de Quedlimbourg : _Spang._  
+1304\. Pierres tombées à Friedberg : _idem._  
+1305\. Pierres tomb. au sol des Vandales : _B. de S. Am._  
+1323\. Pierres tombées dans les provinces de Mortahiah et Dakhahiah : _Quatremére._  
+1438\. Pierres spongieuses tombées à Roa : _Proust._  
+1492\. Pierre tombée à Ensisheim : _Barthold._  
+1496\. Pierres tombées près Cezena : _Subellicus._  
+1510\. Pierres tombées près Crema : _Cardan._  
+--- Pierres tombées dans la Nouv. Espag. : _Merc._  
+--- Pierres tombées près de Neuhof : _Alb. Mesn._  
+1540\. Pierres tombées dans le Limosin : _B. de S. Am._  
+De 1540 à 1550. Pluie de fer en Piémont : _Mercati._  
+1548\. Masse tombée à Mansfeld : _Spangenberg._  
+1552\. Pluie de pierres près Schleusingen : _idem._  
+1559\. Pierres tombées à Miskoz : _Nic. Ysthuanhi._  
+1561\. Pierres tombées à Torgas, près ta cit. Julia et à Seplitz : _Boëce de Boot._  
+1564\. Pierres tomb. entre Malines Brux. : _Gilbert._  
+1581\. Pierre tombée en Thuringe : _Chr. de Thur._  
+1583\. Pierres tombées à Castrovillari : _Mercati._  
+1583\. Pierre tombée en Piémont : _idem._  
+1585\. Pierre tombée en Italie : _Imperati._  
+1591\. Pierre tombée à Kunersdorf : _Angelus._  
+1603\. Pierre tombée dans le royaume de Valence : _Jésuites de Coïmbra._  
+1620\. Fer tombé dans le Mogol : _d'Gehan-Guir._  
+1627\. Pierre tombée en Provence : _Gassendi._  
+1635\. Pierre tombée à Vago : _F. Carli._  
+1636\. Pierre tombée entre Sagau et Dubrow : _Lucas._  
+1647\. Pierre tombée à Stolzenau : _Gilbert._  
+1647 à 1654. Pierre tombée en mer : _Malte-Brun._  
+1650\. Pierre tombée à Dordrecht : _Arnold-Sanguerd._  
+1654\. Pluie de pierres en Fionie : _Bartholin._  
+--- Pierre tombée près Copinsha : _James Vallace._  
+1667\. Pierre tombée Schiras : _Chladni._  
+1672\. Pierres tombées à Véronne : _Le Gallois._  
+1674\. Pierre tombée près Glarus : _Scheuchzer._  
+1677\. Pierres tombées près d'Ermensdorf : _Balduinus._  
+1680\. Pierres tombées à Londres : _Ed. King._  
+1697\. Pierres tombées à Pentolina : _soc. philom._  
+1698\. Masse tombée à Waltring : _Scheuchzer._  
+1706\. Pierre tombée à Larisse : _Paul Lucas._  
+1723\. Pierres tombées à Plescowitz : _Stepling._  
+1731\. Chûte de métal fondu à Lessay : _dom Halley._  
+1738\. Pluie de Pierres près Champfort : _Castillon._  
+1743\. Pierres tombées près Liboschitz : _Stepling._  
+1750\. Pierre tombée à Nicorps : _de la Lande._    
+1751\. Fer tombé à Hraschina : _consistoire d'Agram._  
+1753\. Pierres tombées à Plaw : _Stepling_ et _de Born_.  
+1753\. Pierres tombées à Liponas : _de le Lande._  
+1766\. Pierres tombées à Alboretto : _Vassali._  
+1766\. Pierre tombée près la Novellara : _Chladni._  
+1768\. Pierre tombée à Lucé : _Bachelay._  
+--- Pierre tombée à Aire : _Gurson de Boyaval._  
+--- Pierre tombée en Normandie : _Morand fils._  
+1768\. Pierre tombée près de Maurkirchen : _Imhof._  
+1773\. Pierre tombée à Sena, en Arragon : _Proust._  
+1775\. Pierre tombée près Rodach : _Gilbert._  
+1776 ou 1777. Chûte de pierres près Fabriano : _Chladni._  
+1779\. Pierres tombées à Petriswood : _idem._  
+1785\. Pierres tombées prés d'Aichtat : _de Moll._  
+1790\. Pierres tombées dans les Landes : _Baudin._  
+1791\. Pierres tombées à Castel-Berardenga : _soc. phil._  
+1791\. Pierres tombées près Ménabilly : _Ed. King._  
+1794\. Pierres tombées à Sienne : _Wil. Hamilton._  
+1795\. Pierre tombée dans le Yorck-Shire : _Topham._  
+1796\. Pierre tombée en Portugal : _Southey._  
+1798\. Pierres tombées à Sale : _de Drée._  
+--- Pierre tombée à Bialoczer-Kew : _Chladni._  
+1798\. Pierres tombées à Bénarès : _Ed. Howard._  
+1803\. Pierres tombées à l'Aigle : _Biot._  
+1803\. Pierre tombée à Saurette : _Laugier._  
+1803\. Chûte de pierres à Eggenfeld : _Voigt._  
+1804\. Pierres tombées près Glascow : _Ann. de Gilb._  
+1805\. Pierres tombées près Doroninsk : _Chladni._  
+1805\. Pierres tombées dans Constantinople : _Haïr-Kougas-Ingisian._  
+1806\. Pierres tombées près Alais : _Pagès._  
+1807\. Pierre tombée à Juchnow : _Klaproth._  
+1807\. Chûte de pierres à Weston : _Silliman._  
+1808\. Pierres tombées Borgo-San-Donino : _Guidotti._  
+1808\. Pierres tombées près Staunern : _Klaproth._  
+1808\. Pierres tombées près Lissa : _idem._  
+1809\. Chûte de pierres en Amérique : _Gaz. de France._  
+1810\. Pierres tombées près Charsonville : _Pellieux._  
+1811\. Chûte de pierres près Pultawa : _Gaz. de France._  
+1811\. Chûte de pierres à Berlanguillas : _idem._  
+1812\. Chûte près Toulouse : _Moniteur._  
+1812\. Pierres tombées près Helmstaedt : _Gaz. de Fr._  
+
 ...
 
 # Second Appendice. Description comparative de quelques pierres tombées du ciel.
