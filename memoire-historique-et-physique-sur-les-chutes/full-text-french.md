@@ -34,6 +34,8 @@
 
 # [Second Appendice. Description comparative de quelques pierres tombées du ciel.](#second-appendice-description-comparative-de-quelques-pierres-tombées-du-ciel-1)
 
+# [Supplement.](#supplement-1)
+
 ---
 
 # Avis au Lecteur.
@@ -1816,3 +1818,5 @@ Je ne classe cependant point ce phénomène parmi ceux dont vraisemblablement le
 ...
 
 # Second Appendice. Description comparative de quelques pierres tombées du ciel.
+
+# Supplement.
