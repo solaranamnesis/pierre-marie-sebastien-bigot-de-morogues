@@ -32,7 +32,7 @@
 
 # [Premier Appendice. Catalogue chronologique des Chûtes de Pierres](#premier-appendice-catalogue-chronologique-des-chûtes-de-pierres-1)
 
-# [Second Appendice.](#-second-appendice-1)
+# [Second Appendice.](#second-appendice-1)
 
 ---
 
