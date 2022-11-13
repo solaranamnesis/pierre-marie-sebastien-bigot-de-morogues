@@ -1815,6 +1815,8 @@ Je ne classe cependant point ce phénomène parmi ceux dont vraisemblablement le
 
 # Premier Appendice. Catalogue chronologique des Chûtes de Pierres.
 
+## Chutes Déterminées.
+
 1451\. Av. J. C. Pluie de Pierres à Gabaon : _Moïse_.  
 --- Pierre adorée sous le nom de Mère des Dieux, de Cybèle, d'Elagabale et de Jupiter-Ammon.  
 --- Pierres conservées à Delphes : _Pline_.  
@@ -1938,6 +1940,8 @@ De 1540 à 1550. Pluie de fer en Piémont : _Mercati._
 1811\. Chûte de pierres à Berlanguillas : _idem._  
 1812\. Chûte près Toulouse : _Moniteur._  
 1812\. Pierres tombées près Helmstaedt : _Gaz. de Fr._  
+
+## Chutes Indéterminées.
 
 ...
 
