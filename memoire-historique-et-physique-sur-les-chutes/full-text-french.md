@@ -1,4 +1,4 @@
-# Mémoire Historique et Physique sur les Chutes des Pierres Tombées sur la Surface de la Terre a Diverses Époques.
+# Mémoire Historique et Physique sur les Chûtes des Pierres Tombées sur la Surface de la Terre a Diverses Époques.
 
 ## Par M. P. M. S. Bigot de Morogues,
 
@@ -29,6 +29,8 @@
 # [Cinquième Section.](#cinquième-section-1)
 
 # [Sixième Section.](#sixième-section-1)
+
+# [Premier Appendice. Catalogue chronologique des Chûtes de Pierres]()
 
 ---
 
@@ -1579,5 +1581,9 @@ Tels sont les faits parvenus jusqu'à ce moment à ma connoissance, ils sont en 
 Examinant ensuite succintement les opinions émises jusqu'à ce jour sur les causes d'un phénomène aussi remarquable, jé tâcherai d'analyser les faits les plus avérés, afin de mettre sur la voie qui doit par la suite conduire à une explication presque certaine.
 
 # Sixième Section.
+
+...
+
+# Premier Appendice. Catalogue chronologique des Chûtes de Pierres.
 
 ...
