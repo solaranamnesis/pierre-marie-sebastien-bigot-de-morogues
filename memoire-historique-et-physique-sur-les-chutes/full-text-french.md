@@ -2008,3 +2008,9 @@ Tels sont les caractères distinctifs des masses tombées ou présumées tombée
 Comme dans les différentes parties d'une même couche de nos roches, quelques pierres tombées offrent une agrégation homogène, d'autres présentent une agrégation variolithique ; quelques-unes offrent des rudiments de couches ; d'autres sont totalement grenues ; enfin on remarque dans plusieurs d'entr'elles des filons très-apparents ou de petites couches irrégulières de nature différente, et souvent elles renferment des corps très-distincts ordinairement globuleux, qui paroissent par leur nature différents de la masse principale dans laquelle ils sont agrégés.
 
 # Supplement.
+
+King rapporte dans son ouvrage, que le 18 mai 1680, plusieurs pierres tombèrent dans Londres, près du collège de Gresham. Quelques-unes d'entr'elles furent examinées par le célèbre docteur Hoocke. Les plus petites avoient de deux à trois pouces de diamètre. Je dois cette citation à M. Léman qui a eu la complaisance de me l'envoyer depuis l'impression de la seconde section de cet ouvrage dont elle devroit faire partie.
+
+Je ne doute point que le hasard ou les recherches des savants ne fassent encore découvrir un grande nombre de chûtes de pierres, qui me sont restées inconnues malgré les efforts que j'ai faits pour n'en omettre que le moins possible. J'engage donc ceux qui en découvriront quelques-unes à les publier, et surtout à recueillir tous les détails avérés qui pourront conduire à l'explication de l'important phénomène de la chûte des pierres.
+
+Fin.
