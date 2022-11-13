@@ -1717,7 +1717,97 @@ Elles sont spongieuses, formées d'un tissu ferrugineux, dans lequel le fer se t
 
 Nous pensons donc comme Chladni, qu'on doit attribuer la même origine aux pierres dont les chûtes ont été constatées, et aux masses de fer natif découvertes en Sibérie, à Aken, à Otumpa, et ailleurs ; mais nous ne saurions admettre avec ce savant, que toutes ces substances doivent leur origine à de petits corps célestes particuliers existants dans l'espace. Cette opinion ingénieuse devoit sans doute, à l'époque où il l'a émise, prévaloir sur toutes celles proposées jusqu'à lui, pour expliquer la formation des bolides, et elle pourroit encore être admise par ceux qui persisteroient à supposer que les pierrés tombées sont des résultats essentiels des explosions des globes de feu connus sous le nom de bolides, et observés à tant de fois différentes dans toutes les parties du monde ; mais elle ne me paroît plus soutenable depuis qu'il est démontré que toutes les chûtes de pierres n'ont pas toujours été accompagnées ou précédées de l'apparition d'un globe lumineux, et surtout depuis que par l'examen des pierres tombées à Weston et à Charsonville, je me suis convaincu que ces substances avoient été formées à la manière des roches, en plusieurs époques différentes, et qu'elles n'avoient pas été liquéfiées dans leur totalité postérieurement à leur formation, mais que seulement elles ont été scorifiées à leur surface depuis cette époque et pendant celle de leur chûte.
 
-...
+J'ose donc regarder comme désormais insoutenables les systêmes dans lesquels on confondra comme identiques le phénomène de l'apparition des bolides et celui de la chûte de diverses masses que l'on reconnoît comme tombées sur la terre, et par cette raison je ne répèterai point les réfutations des diverses opinions sur la formation des bolides déjà émises par Chladni, attendu d'ailleurs que tout le monde peut les lire dans son excellent Mémoire, dont la traduction se trouve insérée au tome 15 du Journal des mines.
+
+Je me contenterai seulement de donner ici le précis des diverses suppositions proposées pour l'explication des chûtes de pierres, en observant que toutes présentent des difficultés insurmontables, parce qu'elles ont été faites, d'après un trop petit nombre de faits, ou d'après des faits dont les détails n'étoient pas tous également bien constatés.
+
+Sans énumérer tous les auteurs qui ont prétendu former des systêmes explcatifs, je vais, afin d'abréger mes réfutations, les classer de la manière suivante :
+
+1° Opinion de ceux qui ont supposé aux pierres tombées une origine terrestre ;
+
+2° Opinion de ceux qui ont supposé aux pierres tombées une origine aérienne ;
+
+3° Opinion de ceux qui ont supposé aux pierres tombées une origine céleste.
+
+Parmi ceux qui ont pensé que les pierres tombées avoient une origine terrestre, les uns ont cru que ces substances préexistoient dans les lieux dans lesquels on les a trouvées, et qu'elles avoient été altérées par la foudre. Cette opinion qui fut celle des membres de l'Académie royale des sciences pendant le milieu et même la fin du siècle dernier, est maintenant insoutenable depuis que l'analyse chimique et l'examen minéralogique ont démontré que les pierres tombées étoient essentiellement différentes de tous les minéraux connus et de tous ceux qui les environnoient, quoique cependant on trouvât entr'elles la plus grande analogie, dans quelque lieu qu'elles fussent tombées, et nonobstant la nature du sol sur lequel elles se rencontrèrent.
+
+L'opinion de quelques autres fut que ces pierres avoient une origine volcanique ; ce que leur nature et leur différence avec tous les produits volcaniques connus, ne peuvent permettre de concevoir, surtout quand on fait attentian qu'elles sont presque toutes tombées à des distances énormes des volcans en activité.
+
+L'opinion de ceux qui ont présumé que la terre en certaines circonstances pouvoit s'entr'ouvrir pour les lancer, ne sauroit être étayée sur aucune observation bien constatée ; et d'ailleurs si et certains pays la terre pouvoit produire un pareil phénomène, comment admettre qu'elle pourroit le produire dans tous, sans que jamais aucunes traces n'attestassent la place qu'eût occupé le petit volcan momentané, supposé par plusieurs auteurs, faute de réflexions et d'observations suffisantes.
+
+Si comme quelques-uns on admettoit la supposition que ces substances peuvent avoir été lancées des régions polaires, pourroit-on raisonnablement admettre qu'elles seroient tombées dans toutes les directions sur tant de pays différents et à des distances aussi grandes des pôles ?
+
+Quelques autres ont en vain proposé des trombes comme pouvant servir à expliquer le phénomène dont nous nous occupons ; mais outre que les trombes n'existent que dans les plaines très-étendues, si elles étoient capables d'enlever des corps aussi pesants et de les porter à des distances aussi considérables, pourquoi ces corps seroient-ils toujours de même nature dans tous les pays, et toujours différents des minéraux connus et de ceux environnants ?
+
+Les opinions de ceux qui ont donné aux pierres tombées une origine terrestre, sont donc insoutenables ; celles de ceux qui ont prétendu qu'elles étoient produites dans l'atmosphère ne sont guère plus admissibles ; car les uns ont supposé pour étayer leur opinion, que les substances qui forment les pierres tombées, avoient été dissoutes dans l'air à l'état gazeux, ou enlevées en poudre trés-fine, ou enfin qu'elles s'étoient formées instantanément par la réunion des éléments qui les composent : mais comment dans tous ces cas expliquer la texture grenue de ces pierres ? Et si même on-pouvoit, comme Izarn, supposer que les grains qui forment les pierres tombées, se sont aggrégés et massés sphériquement après leurformation, comment pourroit-on expliquer les veines qui se trouvent dans quelques-unes de ces masses, et les grains renfermés dans le tissu spongieux de certains fers natifs, dont plusieurs sont certainement tombés sur la terre ?
+
+Dans toutes ces diverses hypothèses on est d'ailleurs obligé de supposer que le fer, le carbone, la silice, la mangnésie, _etc._, ont pu être réduits à l'état gazeux, et s'y maintenir à la température habituelle de l'atmosphère, ce qui ne paroît pas probable dans l'état actuel de nos connoissances chimiques, quoique cependant on ne puisse pas en nier la possibilité. Il me paroîtroit donc téméraire de donner cette supposition comme une chose probable. Peut-être les belles expériences galvaniques, qui ont dans ces derniers temps fait connoître tant de faits nouveaux, et reculé si loin le domaine de la science, rendront-elles par la suite cette supposition admissible : mais il me semble que même dans ce temps la nature minéralogique des masses tombées, s'opposera toujours à l'opinion de ceux qui les feront naître dans l'atmosphère.
+
+Quelles seroient d'ailleurs les observations sur lesquelles reposeroient dans ce moment ces systêmes ? Ceux qui croyent que l'électricité a pu concourir à la formation des pierres tombées, s'appuieroient en vain sur quelques coups de tonnerre et sur des phénomènes électriques qui'ne se sont pas manifestés constamment, car il paroît certain que souvent il y a eu des chûtes de pierres sans apparition de globe de feu : il est donc probable que les traces lumineuses qui se sont quelquefois manifestées, ont eu lieu dans les temps où le ciel, plus couvert de nuages, renfermoit plus de matière électrique, ou simplement par l'embrasement des molécules ferrugineuses, qui, se trouvant à la surface des pierres, étoient les plus exposées à l'action de l'oxigène atmosphérique.
+
+Il ne paroît pas davantage que l'on puisse supposer aucune connexion entre le phénomène de la chûte de pierres et celui des aurores boréales, ainsi que quelques-uns l'ont prétendu, car très-souvent ces derniers phénomènes n'ont point accompagné, précédé, ou suivi le premier.
+
+Il ne reste donc plus d'opinions à combattre, relativement à l'origine des chûtes de pierres, que celles de ceux qui leur ont présumé une origine céleste. Ce sont, sans contredit, les moins improbables, mais les systêmes de Chladni, de Lagrange, et de Laplace offrent cependant de très-grandes difficultés.
+
+Le premier suppose nécessairement l'existence de petites masses de matières grossières répandues dans l'espace, et y restant en équilibre jusqu'à ce qu'entraînées par le tourbillon d'une planète, elles tombent sur elle, en vertu de l'attraction que tous les corps exercent les uns sur les autres. Mais comment supposer, dans cette hypothèse singulière, que ces petits corps célestes en équilibre depuis le commencement du monde ou au moins depuis un temps indéterminé, perdent cet équilibre pour tomber sur la terre. La cause qui pourroit occasionner cette déviation d'un corps céleste quelque petit qu'on le suppose, deviendroit aussi inexplicable pour nous, que celle qui détermine la chûte des pierres ; et puisque l'une et l'autre nous sont également inconnues, ne bâtissons pas un systême pour en expliquer un autre, et contentons-nous de l'aveu de notre ignorance, plutôt que de faire des romans, qui ne peuvent servir qu'à prouver la vivacité et quelquefois le dérèglement de l'imagination de leurs auteurs.
+
+Il ne me reste donc plus à combattre que l'opinion de ceux qui s'éteyant du nom du célèbre de Laplace ou de celui du savant de Lagrange, ont cru pouvoir présumer que les piérres tombées bur la terre, nous avoient été lancées de la surface de la lune ou d'une autre planète, soit par une cause volcanique, soit par une autre qui nous est inconnue.
+
+J'avoue que ces systêmes, tout extraordinaires qu'ils sont, me paroissent les moins improbables, mais ils offrent cependant encore de grandes difficultés, car si les corps lancés hors de la sphère d'attraction de la lune, le sont par une cause volcanique, quelle peut être cette cause, et comment en démontrer la réalité d'une manière positive ? Et si on admet des volcans dans la lune, ne devient-il pas nécessaire d'y admettre une atmosphère ? Si même les volcans sont très-considérables, ce qui devroit être pour produire un semblable effet, cette atmosphère devroit être aussi très-considérable ; ce qui paroît contredit par les observations astronomiques. On pourroit encore objecter à ce systême, que quoiqu'il soit possible, eu l'admettant, de concevoir qu'il peut tomber des pierres sur toute la surface de la terre, il en devroit cependant tomber un plus grand nombre proche des tropiques, ce que les observations ne semblent pas confirmer.
+
+D'un autre côté le systême de Lagrange, dans lequel ce grand géomètre a calculé les mouvements que prendroient dans l'espace les fragments d'une planète, qui, après une longue accumulation de calorique dans son intérieur, auroit fait une explosion et seroit brisée en morceaux, repose sur une base qui ne sauroit être démontrée ; et quoique l'on couçoive sa possibilité, on ne sauroit encore le regarder que comme une supposition ingénieuse, qui permet de croire qu'une telle catastrophe peut avoir donné lieu aux chûtes de pierres, ainsi que l'on présume qu'elle peut avoir donné naissance aux quatre petites planètes Junon, Cérès, Vesta, et Pallas, qui, comme son le sait, se meuvent dans des orbites plus elliptiques que celles des autres corps du systême solaire.
+
+Je suis dong bien loin de regarder ces hypothèses comme démontrées, mais cependant elles ne me paroissent pas inadmissibles, et les calculs des de Laplace, des de Lagrange, des Poissons, et de plusieurs autres géomètres célèbres, ont rendu leur possibilité évidente pour ceux qui admettront qu'il peut exister à la surface de la lune ou d'une autre planète, une cause capable de lancer des corps avec une force de projection égale à celle que leur impriment nos volcans, ou à celle que nécessitent les systêmes de ces auteurs illustres.
+
+Je ne m'étendrai pas davantage sur l'examen des opinions émises pour l'explication du phénomène dont je me suis occupé ici, je ne pourrois que répéter ce que d'autres auteurs ont écrit avant moi ; je ne saurois donc mieux faire que de renvoyer aux excellents ouvrages publiés par King, Chladni, et Izarn, _ex professo_, sur cette matière. Je n'eus même pas discuté aussi long-temps les opinions émises pour expliquer la cause de la chûte des pierres, si j'avois admis celles de ces savants ; mais malheureusement elles ne me paroissoient pas suffisamment démontrées : pour moi ce phénomène est encore inexplicable, et aucune des théories proposées jusqu'à ce jour ne me paroît complètement satisfaisante. En rendant à leurs savants auteurs la justice qui leur est due, j'ose donc croire que ceux qui les ont regardées comme concluantes, ont agi avec trop de précipitation, et qu'il est encore nécessaire d'attendre un laps de temps indéterminé pour admettre comme certaine une théorie de la chûte des pierres.
+
+Je sens parfaitement combien une marche aussi lente paroîtra gênante et timide à quelques personnes, surtout aux gens superficiels qui pensent qu'un savant doit tout savoir, et surtout doit tout expliquer ; ceux-là ne connoissent pas par eux-mêmes les bornes de l'esprit humain, dont ils n'ont jamais cherché à sonder ni à étendre les limites ; qu'ils choisissent donc parmi les explications proposées jusqu'à ce jour, celle qui leur conviendra le mieux, elle sera la meilleure du moment où elle les intéressera plus que les autres.
+
+Je ne classe cependant point ce phénomène parmi ceux dont vraisemblablement les causes nous seront toujours inconnues ; sachant que des membres célèbres de la classe des Sciences physique et mathématique de l'Institut, tels que de Laplace, de Lagrange, Haüy, et Vauquelin, se sont occupés du phénomène de la chûte des pierres, il nous est permis d'espérer que quelque jour ses causes nous seront connues, car on doit tout attendre de la réunion d'hommes aussi profondément instruits. Si donc, dans toute autre circonstance, j'eusse été tenté d'émettre une nouvelle opinion ; dans celle-ci, je ne crois pas devoir me le permettre, étant convaincu qu'il seroit téméraire à moi d'entreprendre de remplir une tâche, que les savants les plus célèbres n'ont encore osé s'imposer que pour donner des preuves de la possibilité physique de ce phénomène, et non pour l'expliquer complètement. Je terminerai cet ouvrage par les conclusions suivantes.
+
+1° Le phénomène de la chûte des pierres est incontestable.
+
+2° Toutes les pierres tombées de l'atmosphère qui sont formées des mêmes éléments, et présentent le même mode d'agrégation sont de même origine.
+
+3° Tous les récits bien avérés démontrent que, quoique chaudes, les aréolithes sont cependant solides dans le moment de leur chûte.
+
+4° La chûte de plusieurs masses de fer métallique paroît constatée, et il est probable que toutes les masses de même nature qui se sont trouvées disséminées à la surface de la terre, sont de même origine qu'elles.
+
+5° Le phénomène de la chûte des pierres s'est manifesté dans tous les temps et dans tous les pays qui conservent des Annales écrites ; et il a eu lieu sous un grand nombre de latitudes différentes.
+
+6° Il a eu lieu dans les pays de montagnes comme dans ceux de plaine, et est indépendant des éruptions volcaniques.
+
+7° Les pierres tombées sont d'une nature différente de toutes celles que nous connoissons à la surface du globe terrestre, et n'ont aucun rapport direct avec la foudre, dont l'action ne peut les former sur place, en dénaturant les pierres qui en sont frappées.
+
+8° Quelquefois ce phénomène a été accompagné de lumière, mais les récits ne s'accordent pas sur cette circonstance relativement aux diverses chûtes observées.
+
+9° Il est constant qu'un grand nombre de chûtes de pierres ont eu lieu, sans que les témoins de ces chûtes aient aperçu rien de lumineux, qui les ait précédées, accompagnées, ou suivies.
+
+10° On peut regarder comme constant que plusieurs fois différentes, loin du lieu de l'explosion, il a été vu par des témoins dignes de foi, un corps lumineux qui avoit paru, à l'heure de la chûte, du côté où l'explosion avoit eu lieu, et que cette apparition avoit précédé le bruit qui s'étoit fait entendre dans les mêmes lieux.
+
+11° Il paroît également constant que toutes les fois que des chûtes de pierres ont eu lieu pendant la nuit, elles ont été accompagnées de lumière visible dans l'endroit même de la chûte.
+
+12° Quand les chûtes ont eu lieu en plein jour, rarement quelque chose de lumineux a été vu dans l'endroit de la chûte, lors même que loin de là un globe lumineux avoit paru de ce côté.
+
+13° On peut cependant présumer par l'analogie, que toutes les chûtes de pierres sont précédées par l'apparition d'un corps lumineux, dont la direction est plus ou moins verticale, et qui par cette raison doit rarement être aperçu par ceux des habitants qui se trouvent au lieu de la chûte, quoique la nuit sa lumière s'y fasse remarquer.
+
+14° Le corps lumineux ne peut être observé en plein jour que par un petit nombre de témoins, car il ne peut être vu que de loin, puisqu'on ne regarde ordinairement que dans une direction oblique ou horizon tale ; et d'ailleurs le bruit de l'explosion tardant d'autant plus à se faire entendre et étant d'autant plus foible qu'il est plus éloigné, ne peut attirer l'attention de ce côté qu'après l'apparition de la lumière.
+
+15° Une prompte oxidation de la superficie des corps tombés, peut-être occasionnée par l'électricité de l'atmosphère, a pu suffire pour causer cette apparition de lumière plus sensible pendant la nuit, sans pour cela qu'il soit besoin de recourir à une combinaison de tous les éléments supposés à l'état gazeux ; ce que nos connoissances actuelles ne nous permettent pas de regarder comme possible.
+
+16° Toutes les chûtes de pierres qui paroissent bien constatées, ont été accompagnées d'une explosion plus ou moins bruyante, qui a été entendue non-seulement sur le lieu de la chûte mais encore à une grande distance.
+
+17° La chûte des pierres a souvent eu lieu saus pluie, sans aucun nuage apparent, par un temps calme et serein, et aux diverses heures du jour et de la nuit, ainsi que dans les diverses saisons de l'année.
+
+18° Aucun récit bien avéré, ne démontre que les chûtes de pierres aient été précédées quelque temps avant, par aucun autre phénomène qui puisse leur servir de présage, les écrits des anciens et des modernes ne présentant rien de constant à cet égard.
+
+19° Le lieu où se fait l'explosion qui accompagne les chûtes de pierres, est très-élevé dans l'atmosphère, puisque le bruit ne se fait entendre que plusieurs minutes après leur chûte, et presqu'aussi fortement, assez loin de l'endroit où elles tombent, que dans le lieu même.
+
+20° Les pierres tombées ont éprouvé après leur formation, l'effet d'une cause quelconque, qui a oxidé et fondu leur surface, arrondi leurs angles, et échauffé toute la masse, sans cependant avoir agi assez longuement pour altérer l'agrégation de l'intérieur de la pierre d'une manière sensible.
+
+21° La croûte étant très-mince, l'action de la cause qui l'a produite a été très-vive, mais momentanée : une violente commotion électrique au milieu de l'air atmosphérique, paroît susceptible de produire un effet analogue.
+
+22° La direction ordinairement verticale des masses qui tombent du ciel, l'oxidation de leur superficie, la nature de leurs éléments, et encore plus le mode de leur agrégation, tendent à démontrer leur origine extra atmosphérique, comme leur nature et les phénomènes qui accompagnent leur chûte, démontrent leur origine extra-terrestre.
 
 # Premier Appendice. Catalogue chronologique des Chûtes de Pierres.
 
