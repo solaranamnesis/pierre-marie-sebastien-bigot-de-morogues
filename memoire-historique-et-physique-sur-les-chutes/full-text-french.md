@@ -1,4 +1,4 @@
-# Mémoire Historique et Physique sur les Chûtes des Pierres Tombées sur la Surface de la Terre a Diverses Époques.
+# Mémoire Historique et Physique sur les Chutes des Pierres Tombées sur la Surface de la Terre a Diverses Époques.
 
 ## Par M. P. M. S. Bigot de Morogues,
 
