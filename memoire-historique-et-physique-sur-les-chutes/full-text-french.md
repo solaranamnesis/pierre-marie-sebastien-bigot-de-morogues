@@ -1959,4 +1959,52 @@ Fer natif de la Louisiane : _Bruce_.
 
 # Second Appendice. Description comparative de quelques pierres tombées du ciel.
 
+Afin de faciliter la comparaison entre les pierres tombées du ciel à différentes époques, j'ai cru devoir joindre ici la note caractéristique de chacune de celles que j'ai été à même d'examiner par moi-même. Je n'ai point la prétention de redonner de chacune d'elles des descriptions complètes, qui ne seroient que des répétitions de celles qui se trouvent dans le corps même de mon ouvrage ; mais j'ai cherché à faire connoître les principales différences que présentent entr'eux les divers aspects de quelques pierres tombées.
+
+Parmi toutes ces pierres, celles dont l'agrégation est la plus homogène, sont celles tombées à Charsonville en 1810 : leur teinte est claire ; elles sont dures et tenaces, et se distinguent des autres par le grand et les petits filons noirs qui les traversent.
+
+Les pierres tombées à Borgo-San-Donino, en 1808, semblent s'en rapprocher beaucoup, mais en diffèrent par l'absence des filons noirs.
+
+Les pierres tombées à Berlanguillas, en 1811, paroissent de la même dureté que celles de Charsonville et de l'Aigle ; mais comme celle que j'ai vue n'est pas cassée, je ne puis rien dire de leur aspect intérieur.
+
+Les pierres tombées à l'Aigle, en 1803, diffèrent de celles tombées à Charsonville, parce que, quoique leur cassure soit aussi compacte, et qu'elles offrent presque le même degré de dureté, elles présentent à l'intérieur des taches d'un gris plus foncé que le reste de la masse, et que, dans quelques échantillons, ces taches irrégulières occupent presque autant d'espace, que les parties d'une teinte plus claire en occupent elles-mêmes : on pourroit même dire que la pâte de ces pierres présente un mode d'agrégation semblable à celle des variolithes.
+
+Les pierres tombées à Weston, en 1807, se distinguent des autres par leur moindre tenacité jointe à l'agrégation très-distincte des élémens minéralogiques qui les composent, et surtout par la grande étendue des taches d'un gris plus foncé, qui souvent semblent enclaver celles d'une teinte plus claire.
+
+La pierre d'origine inconnue, renfermée dans le musée de de Drée, a un grand rapport avec les pierres tombées à l'Aigle, en 1803. Elle pèse environ 8 kilogrammes ; elle est dure, à cassure très-raboteuse et très-irrégulière ; elle paroît comme formée du mélange de deux pâtes, l'une d'un gris clair, l'autre d'un gris plus foncé ; elle renferme quelques noyaux globuleux de couleur grise et présente des taches brunes dues à l'oxidation des grains de fer ; enfin elle est médiocrement dure et tenace. Je présume qu'elle peut être l'une de celles tombées à Liponas, en 1753, ce qui paroît probable à M. Léman, tant à cause de la manière dont elle est parvenue à M. de Drée, que par son volume et ses autres caractères.
+
+Les pierres tombées à Sienne en, 1794, sont au contraire d'un gris clair, très-dures, lourdes, et compactes ; mais elles renferment de petits noyaux d'un gris plus foncé et de forme irrégulière.
+
+La pierre tombée près Maurkirchen, en 1768, est d'un gris très-clair, grenue, peu dure, renfermant de petits globules gris plus foncé, des grains de fer natif bien reconnoissables, et quelques grains oxidés brunâtres.
+
+La pierre tombée à Lucé, en 1768, est facile à reconnoître à cause de sa teinte uniforme très-claire ; elle est assez compacte à grains fins, et ne présente aucun filon.
+
+La pierre tombée, en 1795, dans Yorck-Shire, est, comme la précédente, d'une teinte uniforme très-claire ; mais elle est peu dure et semblable à un grès peu tenace, à grains fins et irréguliers.
+
+Les pierres tombées à Aichstat en 1785, sont friables comme la précédente, d'un gris assez clair, d'une teinte uniforme, à grains grossiers, et renferment, dans leur masse, une multitude de grains arrondis, irréguliers, d'un gris plus foncé ; elles renferment aussi beaucoup de grains métalliques fort petits, irrégulièrement arrondis, et, comme dans la plupart des autres, visibles à l'aide de la loupe.
+
+Les pierres tombées à Bénarès, en 1798, forment un agrégat d'un gris très-clair, peu dur et peu tenace, résultant de l'assemblage de petits grains ; elles imitent, par leur aspect, un grès de houillère. On y observe des grains plus gros et arrondis, dont quelques-uns, ressemblent à de petits cailloux roulés, de gneis peu dur et légèrement schisteux.
+
+La pierre tombée à Sales, en 1798, est d'un gris blanchâtre, plus dure et plus tenace que la précédente ; elle est grenue, à grains fins ; sa masse est d'une teinte uniforme, renfermant de petits grains d'un gris foncé, et beaucoup de grains ferrugineux assez gros.
+
+Les pierres tombées près Barbotan, en 1790, sont d'un gris foncé, dures, compactes, à grains assez fins, présentant des fractures brillantes d'un gris métallique, et renfermant de très-petits globules.
+
+La pierre que l'on a dit tombée près de Bordeaux en 1789, diffère, par sa cassure, de la précédente ; elle est, dans quelques parties, d'un noir métallique assez brillant, et présente des taches d'oxide de fer ; elle est pesante, dure, compacte, très-oxidée à l'extérieur et à l'intérieur. Quelques fragments intérieurs moins oxidés offrent une grande ressemblance avec les pierres tombées à Barbotan, en sorte qu'on peut présumer que la pierre dite tombée près Bordeaux, est une de celles tombées près Barbotan, qui aura été très-oxidée par un séjour prolongé dans un endroit humide.
+
+L'une des pierres tombées les plus remarquables, est celle dont la chûte eut lieu à Ensisheim, en 1492. Elle est compacte, d'un gris foncé, avec quelques petites taches arrondies et environnantes, d'un gris plus clair, en sorte que sa cassure présente un aspect un peu truité ; elle renferme des pyrites jaunes assez grosses, des parties ferrugineuses grises, et des taches oxidées. Cette pierre est dure et tenace, sa cassure est irrégulière et comme schisteuse ; elle offre par place, des parties d'apparence terreuse et mattes, et d'autres qui se trouvant dans le sens des fissures naturelles, paroissent un peu brillantes ; en tout elle ressemble à un schiste dur qui ne seroit lamelleux que par petites parties. Vue à la loupe, la pierre d'Ensisheim, paroît grenue à grains fins.
+
+De toutes les pierres tombées du ciel, celles qui jusqu'à ce moment diffèrent le plus des autres par leur aspect, sont celles tombées près d'Alais, en 1806. Elles sont noires, même à l'intérieur, médiocrement dures, peu tenaces, brillantes dans quelques parties, et généralement mattes et terreuses dans les autres ; elles répandent plus que les autres aérolithes l'odeur argileuse par le soufle, elles sont moins lourdes ; mais étant chauffées elles reprennent le même aspect en perdant la petite quantité de carbone qui a été reconnue pour être leur principe colorant et la principale cause des différences qu'elles présentent avec les autres pierres de même origine.
+
+Je crois devoir joindre à ces descriptions celles de trois échantillons différents de fer natif, présumé tombé du ciel, que j'ai été à même de comparer entr'eux.
+
+Le premier est un fragment de la masse découverte en Sibérie. Il se distingue par sa texture spongieuse et scorifiée ; il est revêtu d'oxide qui recouvre l'intérieur de celles de ses cavités qui ne sont pas remplies par la substance vitreuse ressemblant au péridot, qui occupe ordinairement la plupart des trous de ce fer. Cette substance est d'un jaune verdâtre, elle est vitreuse et transparente, ses formes sont ordinairement globuleuses ; mais dans un échantillon possédé par M. de Drée, on remarque sur un de ces globules plusieurs petites facettes très-distinctes.
+
+Le second est de petites masses de fer natif, provenant des mines du Tucuman. Il a été envoyé au roi d'Espagne sous le nom de _mina de hierro virgen de Tucuman_ ; mais quelques personnes le regardent comme tombé du ciel. Il se trouve en petites masses éparses à la surface de la terre. Il est malléable et informe, mais non spongieux et scorifié comme le fer natif de Sibérie ; il est recouvert d'oxide brun ; vu à la loupe, il semble avoir été fondu ; ses formes sont arrondies, et quelques points d'oxide offrent une apparence vitreuse.
+
+Le troisième échantillon est un fragment de fer natif, que l'on présume venir du Sénégal. Il appartient à M. de Drée, ainsi que les deux précédents ; mais ayant été acheté, son origine est moins certaine, cependant le savant Chladni a cru le reconnoître comme semblable aux autres échantillons de fer natif du Sénégal, qu'il a été à même d'examiner. Ce fer renferme des parties oxidées brunes, et d'autres vitreuses ; il est assez compacte, et les parties métalliques sont comme arrondies et mêlées avec celles qui sont vitreuses et paroissent les renfermer ; la couleur des parties vitreuses est le jaune verdâtre, et en tout on peut dire que ce fer ressemble davantage que le précédent à celui rapporté de Sibérie par Pallas.
+
+Tels sont les caractères distinctifs des masses tombées ou présumées tombées du ciel, que j'ai été à même d'examiner jusqu'à ce jour. Ces caractères sont suffisants pour démontrer que quelle que soit leur ressemblance entr'elles et les nombreux rapports qui les réunissent, elles ne sont cependant pas identiquement semblables : leurs analyses ont déja démontré cette vérité importante, et on doit conclure des comparaisons de ces masses entr'elles que, quoiqu'elles aient des caractères communs et une origine très-probablement identique, elles présentent cependant autant de dissemblance qu'en pourroient présenter les différentes parties d'une même couche de roche, et même plusieurs couches contiguës appartenant à une même formation. Il est encore, constant que le mode d'agrégation de toutes ces substances démontre qu'elles sont toujours formées de la réunion de plusieurs éléments minéralogiques très-distincts, qui quelquefois, mais rarement présentent des rudiments de cristallisation.
+
+Comme dans les différentes parties d'une même couche de nos roches, quelques pierres tombées offrent une agrégation homogène, d'autres présentent une agrégation variolithique ; quelques-unes offrent des rudiments de couches ; d'autres sont totalement grenues ; enfin on remarque dans plusieurs d'entr'elles des filons très-apparents ou de petites couches irrégulières de nature différente, et souvent elles renferment des corps très-distincts ordinairement globuleux, qui paroissent par leur nature différents de la masse principale dans laquelle ils sont agrégés.
+
 # Supplement.
