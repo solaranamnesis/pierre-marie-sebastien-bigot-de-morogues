@@ -1943,7 +1943,19 @@ De 1540 à 1550. Pluie de fer en Piémont : _Mercati._
 
 ## Chutes Indéterminées.
 
-...
+Fer tombé, cité par _Scaliger_.  
+Pierre tombée, renfermée dans la collect. de _de Drée_.  
+Masse de fer natif, vue en Sibérie par _Pallas_.  
+Masse de fer à Otumpa, vue par _Rubin de Celis_.  
+Autre mass de fer, vue en Amérique, _idem_.  
+Fer natif, vu dans le Mexique, par _Humboldt_.  
+Fer natif de Durango et de Zacatécas, _idem_.  
+Fer natif du Tucuman.  
+Fer natif tombé au cap de Bon.-Esp. : _Smit. Tennant._
+Fer natif du Sénégal, vu par _Adanson_.  
+Fer natif, trouvé à Aken, par _Lœber_.  
+Fer natif de Bohême, cité par _de Born_.  
+Fer natif de la Louisiane : _Bruce_.  
 
 # Second Appendice. Description comparative de quelques pierres tombées du ciel.
 
