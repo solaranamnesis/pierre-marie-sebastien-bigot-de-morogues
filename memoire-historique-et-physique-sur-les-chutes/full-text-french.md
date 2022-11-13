@@ -32,6 +32,8 @@
 
 # [Premier Appendice. Catalogue chronologique des Chûtes de Pierres](#premier-appendice-catalogue-chronologique-des-chûtes-de-pierres-1)
 
+# [Second Appendice.](#-second-appendice-1)
+
 ---
 
 # Avis au Lecteur.
@@ -1812,3 +1814,5 @@ Je ne classe cependant point ce phénomène parmi ceux dont vraisemblablement le
 # Premier Appendice. Catalogue chronologique des Chûtes de Pierres.
 
 ...
+
+# Second Appendice.
