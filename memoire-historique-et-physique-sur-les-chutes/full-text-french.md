@@ -4,13 +4,7 @@
 
 ### Membré de la Société philomatique de Paris, de la Société minéralogique d'Jenna, de celle d'encouragement pour l'industrie nationale, de celles de Trèves, de Nantes, du Mans, et d'Orléans.
 
-### Orléans,
-
-### Imprimerie de Jacob Ainé.
-
-### rue Bourgogne, n° 6.
-
-### 1812.
+### 1812. Orléans, Imprimerie de Jacob Ainé. Rue Bourgogne, n° 6.
 
 ---
 
