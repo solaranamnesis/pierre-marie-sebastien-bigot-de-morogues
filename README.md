@@ -7,4 +7,4 @@ Public Domain Works of Pierre Marie Sébastien Bigot de Morogues (1776 - 1840)
 English - Plain Text  
 English - PDF  
 [French - Plain Text](memoire-historique-et-physique-sur-les-chutes/full-text-french.md)  
-French - PDF
+[French - PDF](https://cdn.solaranamnesis.com/Morogues/morogues_memoire_chutes_pierres_french_1812.pdf) | [Biolinum](https://cdn.solaranamnesis.com/Morogues/morogues_memoire_chutes_pierres_french_1812_biolinum.pdf) | [Cursive](https://cdn.solaranamnesis.com/Morogues/morogues_memoire_chutes_pierres_french_1812_frcursive.pdf)  
