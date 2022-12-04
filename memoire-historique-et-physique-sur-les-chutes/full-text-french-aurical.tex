@@ -19,7 +19,15 @@
 \renewcommand{\contentsname}{
 \Fontauri{Index}
 }
+
 % fix toc page numbers
+\renewcommand{\cftfigfont}{\Fontauri}
+\renewcommand{\cftfigpagefont}{\Fontauri}
+
+\renewcommand{\cftsecfont}{\Fontauri}
+\renewcommand{\cftsubsecfont}{\Fontauri}
+\renewcommand{\cftsubsubsecfont}{\Fontauri}
+
 \let\origcftsecfont\cft
 \let\origcftsecpagefont\cftsecpagefont
 \let\origcftsecafterpnum\cftsecafterpnum
@@ -98,7 +106,7 @@
 \pagestyle{fancy}
 \fancyhf{}
 \cfoot{\Fontauri{\thepage}}
-\section*{Avis au Lecteur.}
+\section*{\Fontauri{Avis au Lecteur.}}
 \paragraph{}
 Lorsque j'entrepris cet ouvrage, je n'avois d'autre but que celui de comparer entr’elles les circonstances qui ont accompagné les chutes de pierres, afin de pouvoir déterminer celles qui semblent essentielles à ces sortes de phénomènes, et de les distinguer de celles qui n'ont pas constamment eu lieu ; ce qui selon moi était la seule méthode qui pût permettre d'essayer de connaître la cause de ces évènements aussi remarquables que communs.
 
@@ -108,7 +116,7 @@ Je n'ai point osé, à l'exemple de plusieurs auteurs, me permettre de donner un
 
 Nous-mêmes dans ces derniers temps, nous refusant à l'évidence et aux témoignages de toutes les nations, nous rangeâmes les chutes de pierres au nombre des préjugés populaires les plus absurdes : ne blâmons donc point les auteurs de théories savantes dont le calcul démontre la possibilité ; mais laissons dans l'oubli ces systèmes éphémères trop ordinairement le fruit de connaissances superficielles.
 \clearpage
-\section*{Observations Préliminaires.}
+\section*{\Fontauri{Observations Préliminaires.}}
 \paragraph{}
 Le phénomène de la chute des pierres, si récemment révoqué en doute par les meilleurs auteurs, et maintenant admis par tous les savants comme incontestable, était connu dès la plus haute antiquité.
 
